@@ -8,4 +8,4 @@ _*Anyone*_ is able to contribute by suggesting changes to files, as long as you 
 ![image](https://user-images.githubusercontent.com/55902676/144740542-f7270347-4443-43d3-a1f6-df5bcb38a5c8.png)
 
 
-To suggest a change, you have to open a "Pull Request". If you make the change in only your copy of the project, it will NOT be reflected in this copy.
+To suggest a change, you have to open a "Pull Request". If you make the change in only your copy of the project, it will NOT be reflected in this copy. (I went in and manually merged in some of the changes a few of you have contributed, which is why you may see your changes already reflected here!)
