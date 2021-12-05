@@ -1,7 +1,7 @@
 # Chapter One
 ## THE BOY WHO WASN'T UNLIVED
 
-Mr. and Mrs. Dursley, of number four, Privet Drive, liked flexing that they very basic, thank u. Tbh they were the last people you'd think would be sus, because they were all fax no printer.
+Mr. and Mrs. Dursley, of number four, Privet Drive, liked flexing that they were very basic, thank u. Tbh they were the last people you'd think would be sus, because they were all fax no printer.
 
 Mr. Dursley was adulting at a firm called Grunnings, which made drills.
 
@@ -11,7 +11,7 @@ The Dursleys had a small son called Dudley who they thought was the main charact
 
 When Mr. and Mrs. Dursley woke up on the dull, gray (fight me) Tuesday our story starts, there was nothing about the cloudy sky outside to suggest that strange and mysterious things would soon be happening all over the country. Mr. Dursley hummed as he picked out his most boring tie for work, and Mrs. Dursley spilled the tea as she was tryna put a screaming Dudley into his heckin high chair.
 
-None of them noticed a large, tawny owl flutter past the window.
+None of them noticed a chonky, tawny owl flutter past the window.
 
 At half past eight, chunky Mr. Dursley picked up his briefcase, pecked Mrs. Dursley on the cheek, and tried to kiss Dudley goodbye but missed, because Dudley was now having a tantrum and throwing his cereal at the walls. "Little tyke," chortled Mr. Dursley as he left the house. He got into his car and backed out of number four's driveway.
 
