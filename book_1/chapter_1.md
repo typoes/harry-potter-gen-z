@@ -19,3 +19,23 @@ It was on the corner of the street that he noticed the first sign of something s
 
 But on the edge of town, drills were yeeted out of his mind by something else. As he sat in the morning traffic jam starterpack, he couldn’t help noticing that there seemed to be a lot of strangely dressed people about. People in cloaks. Mr. Dursley couldn’t bear people who dressed in funny clothes — the getups you saw on young people! He supposed this was some stupid new fashion. He drummed his fingers on the steering wheel and his eyes fell on a huddle of these weirdos standing quite close by. They were whispering excitedly together. Mr. Dursley was enraged to see that a couple of them weren’t young at all; why, that man had to be older than he was, and wearing an emerald-green cloak! The nerve of him! But then it struck Mr. Dursley that this was probably some silly stunt —these people were obviously collecting for something… yes, that would be it. The traffic moved on and a few minutes later, Mr. Dursley arrived in the Grunnings parking lot, his mind back on drills. Mr. Dursley always sat with his back to the window in his office on the ninth floor. If he hadn’t, he might have found it harder to concentrate on drills that morning. He didn’t see the owls swooping past in broad daylight, though people down in the street did; they pointed and gazed open-mouthed as owl after owl sped overhead. Most of them had never seen an owl even at nighttime. Mr. Dursley, however, had a perfectly normal, owl-free morning. He yelled at five different people. He made several important telephone calls and shouted a bit more. He was in a very good mood until lunchtime, when he thought he’d stretch his legs and walk across the road to buy himself a bun from the bakery. He’d forgotten all about the people in cloaks until he passed a group of them next to the baker’s. He eyed them angrily as he passed. He didn’t know why, but they seemed kinda sus. This bunch were whispering excitedly, too, and he couldn’t see a single collecting tin. It was on his way back past them, clutching a large doughnut in a bag, that he caught a few words of what they were saying. “The Potters, that’s right, that’s what I heard —”
 " — yes, their boi, Harry —"
+
+Mr Dursley felt like he'd been ratioed irl. He looked back at the whisperers and wondered if he should @ them, but thought better of it. Even a girlboss has his weak moments... and anyway, there were plenty of people called Potter with moots called Harry. There was no point in worrying his discord kitten- her sister was on both their DNI lists.
+
+During that day, emo thoughts kept dabbing across Mr Dursley's mind. He later left the building and nearly sister slammed into someone just outside his door. 
+
+"Naurrr," he grunted, as the man nearly fell. However, he didn't seem triggered at all- instead, the funky little dude pressed the slay button. "So true, bestie! Even Muggles like u should slayy today, when The Sussiest Of Bakas has been canceled at last!"
+
+And then the old man hugged Mr Dursley (real) and headed off.
+
+Mr Dursley couldn't even find it in him to yeah fortnite 10k we're about to go down babey. He hurried to his car and went straight home.
+
+As he pulled into the driveway the first thing he sister saw was the same tabby cat he'd seen in the morning, sitting on the wall.
+
+"POV: You're on my DNI list," Mr Dursley spat at the cat as he walked inside.
+
+His bae's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news.
+
+
+
+
