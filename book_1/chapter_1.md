@@ -1,5 +1,5 @@
 # Chapter One
-## THE BOY WHO WASN'T UNLIVED
+## THE BOY WHO WASN'T UNALIVED
 
 Mr. and Mrs. Dursley, of number four, Privet Drive, liked flexing that they were very basic, thank u. Tbh they were the last people you'd think would be sus, because they were all fax no printer.
 
