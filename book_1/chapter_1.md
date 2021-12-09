@@ -34,8 +34,12 @@ As he pulled into the driveway the first thing he sister saw was the same tabby 
 
 "POV: You're on my DNI list," Mr Dursley spat at the cat as he walked inside.
 
-His bae's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news.
+His bae's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news:
 
+“Bird watchers everywhere are fighting for their lives right now. Owls don’t be out in the daylight, but they’ve been in these streets. The science isn’t science-ing.” The newscaster smiled. “Weird af, bro. Now, Jim McGuffin, what that weather do, boyyyy? Anymore owl showers tonight?”
 
+“Say less, Ted,” said the weatherman, “I’m tryin’ to report on some rain, but these mfs from Kent, Yorkshire, and Dundee are not understanding the assignment, and keep blowing up my phone about these birds. Anyway, it’s mad brick out here, and raining… because England. Except this time it’s raining shooting stars because that might as well happen. It will actually rain tonight though, but it’s about to be raining hands if mfs don’t stop calling about these damn birds.”
+
+Mr. Dursley was shook. Shooting stars? Owls waking up and choosing violence? Mfs dressed in ren faire fits? And now whispers about the Potters… 
 
 
