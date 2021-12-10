@@ -13,16 +13,17 @@ When Mr. and Mrs. Dursley woke up on the dull, gray (fight me) Tuesday our story
 
 None of them noticed a chonky, tawny owl flutter past the window.
 
-At half past eight, the chonklord that is Mr. Dursley picked up his briefcase, pecked Mrs. Dursley on the cheek, and tried to kiss Dudley goodbye but missed, because Dudley was losing it and yeeted his cereal at the walls. "Little Lad" chortled Mr. Dursley as he left the house. He got into his whip and backed out into the driveway of their bland house
+At half past eight, the chonklord that is Mr. Dursley picked up his briefcase, pecked Mrs. Dursley on the cheek, and tried to kiss Dudley goodbye but missed, because Dudley was losing it and yeeted his cereal at the walls. "Little Lad" chortled Mr. Dursley as he left the house. He got into his whip and backed out into the driveway of their basic asf house
 
-It was on that one edge of the street that you feel like you could accidentally hit the elbow of your car on that he noticed something sus --a cat popping off and reading a map. For a sec, Mr. Dursley didn't realize what he'd seen--then he jerked his head around to look again. There was a tabby cat standing on the corner of Privet Drive, but there wasn't a map in sight. What could he have been thinking of? It must have been a trick of the light. Mr. Dursley blinked and stared at the cat. It stared back. As Mr. Dursley drove around the corner and up the road, he watched the cat in his mirror. It was now reading the sign that said Privet Drive--no, _looking_ at the sign; cats couldn't read maps or signs. Periodt. Mr. Dursley gave himself a little shake and put the cat out of his thinking-organ. As he drove toward the town he had no thonks, head empty, except for some drills he had to sell. _Let's get this L O A F_, he thought.
+It was on that one edge of the street that you feel like you could accidentally hit the elbow of your car on that he noticed something sus --a cat popping off and reading a map. For a sec, Mr. Dursley didn't realize what he'd seen--then he jerked his head around to look again. There was a chonking tabby cat standing on the corner of Privet Drive, but there wasn't a map in sight. What could he have been thinking of? It must have been a trick of the light. Mr. Dursley blinked and stared at the chonking cat. It stared back. As Mr. Dursley drove around the corner and up the road, he watched the chonkers in his mirror. It was now reading the sign that said Privet Drive--no, _looking_ at the sign; cats couldn't read maps or signs. Periodt. Mr. Dursley gave himself a little shake and put the chonkers out of his thinking-organ. As he drove toward the town he had no thonks, head empty, except for some drills he had to sell. _Let's get this L O A F_, he thought.
 
-But on the edge of town, drills were yeeted out of his mind by something else. As he sat in the morning traffic jam starterpack, he couldn’t help noticing that there seemed to be a lot of not-very-shady-at-all people about. People in cloaks. Mr. Dursley couldn’t bear people who dressed in cheugy clothes — the getups you saw on young people! He supposed this was some stupid new fashion. He drummed his fingers on the steering wheel and his eyes fell on a huddle of these weirdos standing quite close by. They were whispering excitedly together. Mr. Dursley was enraged to see that a couple of them weren’t young at all; why, that man had to be a boomer, and wearing an emerald-green cloak! The nerve of him! But then it struck Mr. Dursley that this was probably some silly stunt —these people were obviously collecting for something... yes, that would be it. The traffic moved on and a few minutes later, Mr. Dursley arrived in the Grunnings parking lot, his mind back on drills. Mr. Dursley always sat with his back to the window in his office on the ninth floor. If he hadn’t, he might have found it harder to concentrate on drills that morning. He didn’t see the owls swooping past in broad daylight, though people down in the street did; they pointed and gazed open-mouthed as owl after owl sped overhead. Most of them had never seen an owl even at nighttime. Mr. Dursley, however, had a perfectly normal, owl-free morning. He yelled at five different people. He made several important telephone calls and shouted a bit more. He was in a very good mood until lunchtime, when he thought he’d stretch his legs and walk across the road to buy himself a bun from the bakery. He’d forgotten all about the people in cloaks until he passed a group of them next to the Starbucks. He took a beeg look at them with unhappy as he passed. He didn’t know why, but they seemed kinda sus. This bunch were whispering excitedly, too, and he couldn’t see a single collecting tin. It was on his way back past them, clutching a large doughnut in a bag, that he caught a few words of what they were saying. "The Potters, that’s right, that’s what I heard —"
+But on the edge of town, drills were yeeted out of his mind by something else. As he sat in the morning traffic jam starterpack, he couldn’t help noticing that there seemed to be a lot of not-very-shady-at-all people about. People in cloaks. Mr. Dursley couldn’t bear people who dressed in cheugy clothes — the getups you saw on young people! He supposed this was some stupid new fashion. He drummed his fingers on the steering wheel and his eyes fell on a huddle of these weirdos standing quite close by. They were whispering excitedly together. Mr. Dursley was enraged to see that a couple of them weren’t young at all; why, that man had to be a boomer, and wearing an emerald-green cloak! The audacity of him! But then it struck Mr. Dursley that this was probably some silly stunt (a tiktok probs) — these people were obviously collecting for something… yes, that would be it. The traffic moved on and a few minutes later, Mr. Dursley arrived in the Grunnings parking lot, his mind back on drills. Mr. Dursley always sat with his back to the window in his office on the ninth floor. If he hadn’t, he might have found it harder to concentrate on drills that morning. He didn’t see the owls popping off in broad daylight, though people down in the street did; they pointed and gazed deceased as owl after owl sped overhead. Most of them had never seen an owl even at nighttime. Mr. Dursley, however, had a perfectly normal, owl-free morning. He yelled at five different people. He made several important telephone calls and shouted a bit more. He was in a very good mood until lunchtime, when he thought he’d stretch his legs and walk across the road to buy himself a bun from the bakery. He’d forgotten all about the people in cloaks until he passed a group of them next to the Starbucks. He took a beeg look at them with unhappy as he passed. He didn’t know why, but they seemed kinda sus. This bunch were whispering excitedly, too, and he couldn’t see a single collecting tin. It was on his way back past them, clutching a large doughnut in a bag, that he caught a few words of what they were saying. "The Potters, that’s right, that’s what I heard —"
+
 " — bet, their boi, Harry —"
 
 Mr Dursley felt like he'd been ratioed irl. He looked back at the whisperers and wondered if he should @ them, but thought better of it. Even a girlboss has his weak moments... and anyway, there were plenty of people called Potter with moots called Harry. There was no point in worrying his discord kitten- her sister was on both their DNI lists.
 
-During that day, emo thoughts kept dabbing across Mr Dursley's mind. He later left the building and nearly sister slammed into someone just outside his door. 
+During that day, emo thoughts kept dabbing across Mr Dursley's mind. He later left the building and nearly sister slammed into someone just outside his door.
 
 "Naurrr," he grunted, as the man nearly fell. However, he didn't seem triggered at all- instead, the funky little dude pressed the slay button. "So true, bestie! Even Muggles like u should slayy today, when The Sussiest Of Bakas has been canceled at last!"
 
@@ -30,12 +31,11 @@ And then the old man hugged Mr Dursley (real) and headed off.
 
 Mr Dursley couldn't even find it in him to yeah fortnite 10k we're about to go down babey. He hurried to his car and went straight home.
 
-As he pulled into the driveway the first thing he sister saw was the same tabby cat he'd seen in the morning, sitting on the wall.
+As he pulled into the driveway the first thing he sister saw was the same chonk cat he'd seen in the morning, sitting on the wall.
 
 "POV: You're on my DNI list," Mr Dursley spat at the cat as he walked inside.
 
-His bae's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news:
-"Last thing: birders everywhere are fighting for their lives right now. Them hooters hunt at night and avoid sunlight like nerds, but for some reason they've been invading our skies since sunrise. The science isn't science-ing." The newscaster smirked. "Weird af, bro. Now, Jim McGuffin, what that weather do, boyyyy? Anymore owl showers tonight?"
+His bae's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news: "Last thing: birders everywhere are fighting for their lives right now. Them hooters hunt at night and avoid sunlight like nerds, but for some reason they've been invading our skies since sunrise. The science isn't science-ing." The newscaster smirked. "Weird af, bro. Now, Jim McGuffin, what that weather do, boyyyy? Anymore owl showers tonight?"
 
 "Say less, Ted," said the weatherman, "Tbh, idk, but the birbs aren’t the only weird today. Viewers as far apart as Kent, Yorkshire, and Dundee have been tweeting that instead of the rain I promised yesterday, the sky is having shooting stars! Maybe they're celebrating Bonfire Night early. It will actually rain tonight though, but it’s about to be raining hands if mfs don’t stop calling about these damn birds."
 
@@ -49,13 +49,13 @@ As he had expected, Mrs. Dursley looked like she ate a lemon. After all, they gh
 
 "Cringey crap on the news," Mr. Dursley mumbled. "Owls... shooting stars... and there were a lot of edgelords in town today..."
 
-"And?" snapped Mrs. Dursley. 
+"And?" snapped Mrs. Dursley.
 
 "Well, I just thought... maybe... it was something to do with ... you know... her crew."
 
 Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he dared tell her that he’d heard the name "Potter." He decided he didn’t dare. Instead he said, as casually as he could, "Their crotch goblin – he’d be about Dudley’s age now, wouldn’t he?"
 
-"Bet," huffed Mrs. Dursley. 
+"Bet," huffed Mrs. Dursley.
 
 "What’s his name again? Howard, isn’t it?"
 
@@ -63,25 +63,25 @@ Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he
 
 "Oh, yeah," Mr. Dursley’s feels felt punched. "Legit."
 
-He decided to stfu as they finna upstairs to catch some z’s. While Mrs. Dursley took off her face, Mr. Dursley lurked in the bedroom window overlooking the front garden. The floof was still there. It was staring down Privet Drive as though it were waiting for something. 
+He decided to stfu as they finna upstairs to catch some z’s. While Mrs. Dursley took off her face, Mr. Dursley lurked in the bedroom window overlooking the front garden. The floof was still there. It was staring down Privet Drive as though it were waiting for something.
 
-Was he imagining things? Could all this have anything to do with the Potters? If it did... if it got out that they were related to a pair of – they would totes be cancelled. 
+Was he imagining things? Could all this have anything to do with the Potters? If it did... if it got out that they were related to a pair of – they would totes be cancelled.
 
-The Dursleys got into bed. Mrs. Dursley crashed but Mr. Dursley couldn’t shake the intrusive thoughts. Finally he comforted himself that if the Potters were involved, there was no reason for them to invade the Dursley’s space. The Potters knew very well that he and his bae thought they were cringe and wanted nothing to do with their shenanigans... He couldn’t see how they could get all up in his business. 
+The Dursleys got into bed. Mrs. Dursley crashed but Mr. Dursley couldn’t shake the intrusive thoughts. Finally he comforted himself that if the Potters were involved, there was no reason for them to invade the Dursley’s space. The Potters knew very well that he and his bae thought they were cringe and wanted nothing to do with their shenanigans... He couldn’t see how they could get all up in his business.
 
-Nope. 
+Nope.
 
-Mr. Dursley was drifting off uneasily but the floof outside was on high alert. Like a fuzzy statue with penetrating eyes, it stared unblinking at the far corner of Privet Drive. It showed superb chill as the world happened around it. 
+Mr. Dursley was drifting off uneasily but the floof outside was on high alert. Like a fuzzy statue with penetrating eyes, it stared unblinking at the far corner of Privet Drive. It showed superb chill as the world happened around it.
 
-An ancient man appeared on the corner the cat had been protec on Privet Drive. He was tall, thin, and very old with a boss beard long enough to tuck into his belt. He was slaying in his long robes, a purple cloack that swept the ground, and high-heeled, buckled boots. His blu eyes were light, bright, and sparkling behind half-moon spectacles and his honker was long and crooked as though he had been punched in the face before. This ya boi, Albus Dumbledore. 
+An ancient man appeared on the corner the cat had been protec on Privet Drive. He was tall, thin, and very old with a boss beard long enough to tuck into his belt. He was slaying in his long robes, a purple cloack that swept the ground, and high-heeled, buckled boots. His blu eyes were light, bright, and sparkling behind half-moon spectacles and his honker was long and crooked as though he had been punched in the face before. This ya boi, Albus Dumbledore.
 
 Albus Dumbledore was super chill about the fact that he wasn’t wanted on this street. He was busy doing a self body cavity search until he felt the gaze of the catto. He chuckled and muttered, " I should have known."
 
-He found his query, a silver cigarette lighter, flicked it open and clicked it. RIP the nearest street lamp. Ya boi got click happy and plunged the street into darkness. Now the nosy Nancy neighbors could see nothing on the block. The old man waltzed down the street to chill with the cat. 
+He found his query, a silver cigarette lighter, flicked it open and clicked it. RIP the nearest street lamp. Ya boi got click happy and plunged the street into darkness. Now the nosy Nancy neighbors could see nothing on the block. The old man waltzed down the street to chill with the cat.
 
 "Sup, Prof McGonagall?"
 
-He turned to smile at the tabby who was now a human with the air of a CEO serious business woman. She be wearing square glasses exactly the shape of the markings on the cat. Her lewk was on fleek with an emerald green cloak and black hair in a tight bun. 
+He turned to smile at the tabby who was now a human with the air of a CEO serious business woman. She be wearing square glasses exactly the shape of the markings on the cat. Her lewk was on fleek with an emerald green cloak and black hair in a tight bun.
 
 "How did you know it was me?" she asked.
 
@@ -90,9 +90,9 @@ He turned to smile at the tabby who was now a human with the air of a CEO seriou
 "Brick walls aren’t comfy."
 "Y u no party? There are like a dozen dank bangers I passed getting here."
 
-Prof McGonagall sniffed angrily. 
+Prof McGonagall sniffed angrily.
 
-"Oh yes, everyone’s celebrating all right. High-key Muggles noticed. It was on their idiot box. Flocks of birbs... shooting stars... Muggles have eyes. Shooting stars down in Kent – bet that was Dedalus Diggle. Smooth brain." 
+"Oh yes, everyone’s celebrating all right. High-key Muggles noticed. It was on their idiot box. Flocks of birbs... shooting stars... Muggles have eyes. Shooting stars down in Kent – bet that was Dedalus Diggle. Smooth brain."
 
 "You can’t blame them," Dumbledore cooed. "This bull has been like 2020 for eleven years."
 
@@ -112,7 +112,7 @@ She threw a sharp, sideways glance at Dumbledore here, as though hoping he was g
 
 "Bet," Prof McG was exasperated but eyeing Dumbldore like a snacc. "But you’re the only one who could make Voldemort salty."
 
-"Flattery will get you everywhere. Voldemort did have moves, though." Dumbledore said calmly. 
+"Flattery will get you everywhere. Voldemort did have moves, though." Dumbledore said calmly.
 
 "Fr you do, too, but don’t flex."
 
@@ -120,11 +120,11 @@ She threw a sharp, sideways glance at Dumbledore here, as though hoping he was g
 
 Prof McG shot Dumbledore a sharp look and said, "The birbs are nothing next to this tea they be sipping. Legit what they say has me shook."
 
-It seemed that Professor McGonagall had reached the point she was most anxious to discuss, the real reason she had been waiting on a cold, hard wall all day, for neither as a cat nor as a woman had she fixed Dumbledore with such a piercing stare as she did now. It was plain that whatever "everyone" was saying, she was not going to believe it until Dumbledore told her it was true. Dumbledore, however, was choosing another lemon drop and didn’t answer. 
+It seemed that Professor McGonagall had reached the point she was most anxious to discuss, the real reason she had been waiting on a cold, hard wall all day, for neither as a cat nor as a woman had she fixed Dumbledore with such a piercing stare as she did now. It was plain that whatever "everyone" was saying, she was not going to believe it until Dumbledore told her it was true. Dumbledore, however, was choosing another lemon drop and didn’t answer.
 
-"What they’re saying," she pressed on, " is that last night Voldemort turned up in Godric’s Hollow. He went to find the Potters. And that he unalived Lily and James Potter!" 
+"What they’re saying," she pressed on, " is that last night Voldemort turned up in Godric’s Hollow. He went to find the Potters. And that he unalived Lily and James Potter!"
 
-Dumbledore hung his head. Prof McG gasped. 
+Dumbledore hung his head. Prof McG gasped.
 
 "Lily and James... No way... I can't even... Oh, Albus..."
 
@@ -162,9 +162,9 @@ Professor McGonagall made fish faces like she was going to say something but tho
 
 "He has a big heart," said Professor McGonagall grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
 
-A low rumbling sound had broken the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky 0 a huge motorcycle fell out of the air and landed on the road in front of them. 
+A low rumbling sound had broken the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky 0 a huge motorcycle fell out of the air and landed on the road in front of them.
 
-If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and at least 5 times as thicc. His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets. 
+If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and at least 5 times as thicc. His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
 
 "Hagrid," said Dumbledore, sounding relieved. "Finally. Where'd you get the ride?"
 
@@ -174,7 +174,7 @@ If the motorcycle was huge, it was nothing compared to the beast of a man stradd
 
 "Nope - house was almost destroyed, but I got him out all right before the Muggles started swarmin' around. He fell asleep as we was flyin' over Bristol."
 
-Dumbledore and Professor McGonagall bent forward over the bundle of blankets. Inside, just as visible, was a babin, sleepin. Under a tuft of jet-black hair over his forehead they could see a curiously shaped cut, like a bolt of lightning. 
+Dumbledore and Professor McGonagall bent forward over the bundle of blankets. Inside, just as visible, was a babin, sleepin. Under a tuft of jet-black hair over his forehead they could see a curiously shaped cut, like a bolt of lightning.
 
 "Is that where -?" whispered Professor McGonagall.
 
@@ -184,27 +184,29 @@ Dumbledore and Professor McGonagall bent forward over the bundle of blankets. In
 
 "Yeah, but no. Scars come in handy. I have one on my knee that is totes a map of the London Underground. Well - gimme, Hagrid - let's get this over with."
 
-Dumbledore took Harry in his arms and turned toward the Dursley's house. 
+Dumbledore took Harry in his arms and turned toward the Dursley's house.
 
-"Could I - could I say bye to him, sir?" asked Hagrid. He bent his great, shaggy head over Harry and gave him what must have been a very scratchy, whiskery kiss. Then, suddenly, Hagrid let out a noise like a wounded pupper. 
+"Could I - could I say bye to him, sir?" asked Hagrid. He bent his great, shaggy head over Harry and gave him what must have been a very scratchy, whiskery kiss. Then, suddenly, Hagrid let out a noise like a wounded pupper.
 
 "STFU" hissed Professor McGonagall, "you'll wake the normies!"
 
 "S-s-s-sowwy," sobbed Hagrid, taking out a large spotted handkercheif and burying his face in it. "But I c-c-can't stand it - Lily an' James unalived - an' an' poor lil' Harry off ter live with Muggles -"
 
-"Yeah, no, yeah, tragic, but control yourself, Hagrid, or we'll be found," Professor McGonagall whispered, patting Hagrid gently on the arm as Dumbledore stepped over the low garden wall and walked to the front door. He laid Harry gently on the doorstep, took a letter out of his cloak, tucked it inside Harry's blankets, and then came back to the other two. For a full minute the three of them stood and looked at the little bundle; Hagrid's shoulders shook, Professor McGonagall blinked furiously, and the twinkling light that usually shone from Dumbledore's eyes seemed to have gone out. 
+"Yeah, no, yeah, tragic, but control yourself, Hagrid, or we'll be found," Professor McGonagall whispered, patting Hagrid gently on the arm as Dumbledore stepped over the low garden wall and walked to the front door. He laid Harry gently on the doorstep, took a letter out of his cloak, tucked it inside Harry's blankets, and then came back to the other two. For a full minute the three of them stood and looked at the little bundle; Hagrid's shoulders shook, Professor McGonagall blinked furiously, and the twinkling light that usually shone from Dumbledore's eyes seemed to have gone out.
 
-"Whelp," said Dumbledore, finally, "that's that. Time to dip. We may as well go party hearty." 
+"Whelp," said Dumbledore, finally, "that's that. Time to dip. We may as well go party hearty."
 
 "Yeah," said Hagrid in a very muffled voice, "Finna give Sirius back his ride. G'night, Professor McGonagall - Professor Dumbledore, sir."
 
-Wiping his streaming eyes on his jacket sleeve, Hagrid swung himself onto the motorcycle and kicked the engine into life; with a roar it rose into the air and off into the night. 
+Wiping his streaming eyes on his jacket sleeve, Hagrid swung himself onto the motorcycle and kicked the engine into life; with a roar it rose into the air and off into the night.
 
-"See ya soon, Prof McG," said Dumbledore, nodding to her. Professor McGonagall blew her nose in reply. 
+ Wiping his streaming eyes on his jacket sleeve, Hagrid swung himself onto the motorcycle and kicked the engine into life; with a roar it rose into the air and off into the night.
 
-Dumbledore walked off into the night. On the corner he stopped and took out the silver Put-Outer. He clicked it once, and twelve balls fo light sped back to their street lamps so that Privet Drive glowed suddenly orange and he could make out a tabby cat slinking around the corner at the other end of the street. He could just see the bundle of blankets on the step of number four. 
+"See ya soon, Prof McG," said Dumbledore, nodding to her. Professor McGonagall blew her nose in reply.
 
-"Gl, Harry," he murmured. He spun on his heel, swished his cloak, and vanished into the night. 
+Dumbledore walked off into the night. On the corner he stopped and took out the silver Put-Outer. He clicked it once, and twelve balls fo light sped back to their street lamps so that Privet Drive glowed suddenly orange and he could make out a tabby cat slinking around the corner at the other end of the street. He could just see the bundle of blankets on the step of number four.
+
+"Gl, Harry," he murmured. He spun on his heel, swished his cloak, and vanished into the night.
 
 A breeze ruffled the neat hedges of Privet Drive, super basic even under the stars, the very last place you would expect astonishing things to happen. Harry Potter cuddled up inside his blankies, sleepin soundly. One smol hand closed on the letter beside him and he slept on, not knowing he was special, not knowing he was famous, not knowing he would be woken in a few hours' time by Mrs. Dursley's scream as she opened the front door to put out the milk bottles, nor that he would spend the next few weeks being prodded and pinched by his cousin Dudley... He couldn't know that at this very moment, peeps meeting in secret all over the county gettin lit and saying in hushed voices: "To Harry Potter - the boy who wasn't unalived."
 
