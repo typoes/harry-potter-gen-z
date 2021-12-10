@@ -3,7 +3,7 @@ Harry Potter: The Gen Z Edition
 
 This project provides a place for anyone to collaborate on Harry Potter: The Gen Z edition, inspired by [this Reddit post](https://www.reddit.com/r/harrypotter/comments/r87mvh/accidentally_bought_the_gen_z_how_do_you_do/).
 
-_**Anyone**_ is able to contribute by suggesting changes to files, as long as you have a GitHub account. 
+_**Anyone**_ is able to contribute by suggesting changes to files, as long as you have a GitHub account. It has to manually be approved, so your changes will not be reflected immediately. If you created a change successfully, you should see it appear here: https://github.com/typoes/harry-potter-gen-z/pulls
 
 
 ## How to make changes 
