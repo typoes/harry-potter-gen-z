@@ -88,6 +88,7 @@ He turned to smile at the tabby who was now a human with the air of a CEO seriou
 "Prof, cat’s don’t look like they planking."
 
 "Brick walls aren’t comfy."
+
 "Y u no party? There are like a dozen dank bangers I passed getting here."
 
 Prof McGonagall sniffed angrily.
@@ -114,7 +115,7 @@ She threw a sharp, sideways glance at Dumbledore here, as though hoping he was g
 
 "Flattery will get you everywhere. Voldemort did have moves, though." Dumbledore said calmly.
 
-"Fr you do, too, but don’t flex."
+"Fr you do, too, but you don’t flex."
 
 "You make me blush."
 
@@ -144,11 +145,11 @@ Professor McGonagall pulled out a tissue and dabbed at her eyes beneath her spec
 
 "I’ve come to bring Harry to his aunt and uncle. They’re the only family he has left now."
 
-"You don’t mean – you can’t mean these Karens?!" cried Professor McGonagall, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. You couldn’t find two people who are more basic! And their spawn – I saw him kicking his mother all the way up the street screaming for sweets. Harry Potter come and live here?!"
+"You don’t mean – you can’t mean these Karens?!" cried Professor McGonagall, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. These basic fools aren't in the Same WhatsApp group! And their spawn – I saw him kicking his mother all the way up the street screaming for sweets. Harry Potter come and live here?!"
 
 "It’s the best place for him," said Dumbledore firmly. "His aunt and uncle will be able to explain everything to him when he’s older. I’ve written them a letter."
 
-"A letter?" repeated Professor McGonagall faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a letter? These people will never understand him! He’ll be famous – legendary – I wouldn’t be surprised if today was known as Harry Potter Day in the future – there will be books written about Harry – every child in our world will know his name!"
+"A letter?" repeated Professor McGonagall faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a letter? These people will never understand him! He’ll be famous – legendary – I wouldn’t be shook if today was known as Harry Potter Day in the future – there will be books written about Harry – every child in our world will know his name!"
 
 "Bet," said Dumbledore, looking super serious through his specs. "It would be enough to go to anyone's head. An influencer before he can walk and talk! Famous for something he won't even remember! Can't you see how much better off he'll be, growing up away from all that until he's ready to take it?"
 
@@ -156,13 +157,13 @@ Professor McGonagall made fish faces like she was going to say something but tho
 
 "Hagrid's bringing him."
 
-"You think it - wise - to trust Hagrid with something as important as this?"
+"You think it big brain to trust Hagrid with something as important as this?"
 
 "I would trust Hagrid with my life," said Dumbledore.
 
-"He has a big heart," said Professor McGonagall grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
+"His heart is G.O.A.T.," said Professor McGonagall grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
 
-A low rumbling sound had broken the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky 0 a huge motorcycle fell out of the air and landed on the road in front of them.
+A vroom vroom sound broke the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky - a huge motorcycle fell out of the air and landed on the road in front of them.
 
 If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and at least 5 times as thicc. His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
 
