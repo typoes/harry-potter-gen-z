@@ -61,7 +61,7 @@ Dudley strained as the wheels turned in his head, ever so slowly. "So I'll have 
 
 Uncle Vernon chuckled. 
 
-"Little lad just wants to get his money's worth, just like his father. That's mah boi, Dudley!" He ruffled Dudley's hair. 
+"Lil dude just wants to get his money's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
 
 At that moment the telephone rang and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a bluray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
 
@@ -81,7 +81,7 @@ The Dursley's often spoke about Harry like this, as though he wasn't there - or 
 
 "On vacay in Majorca," snapped Aunt Petunia. 
 
-"You could just leave me here," Haarry put in hhopefully (he'd be able to watch what wanted on Netflix for a change and maybe even troll teh forums on Dudley's chromebook). 
+"You could just leave me here," Haarry put in hopefully (he'd be able to watch what wanted on Netflix for a change and maybe even troll the forums on Dudley's chromebook). 
 
 Aunt Petunia looked as though she'd just swallowed a lemon. 
 
