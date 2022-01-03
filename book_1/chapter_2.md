@@ -25,9 +25,9 @@ Harry groaned. So done.
 
 "Nothing, nothing..."
 
-Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the cupboard under the stairs was full of them, and that was his space.
+Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the cupboard under the stairs was full of them, and that was his zone.
 
-Once clothed he made his way down the hall into the kitchen. The table was smol beneath all Dudley's birthday presents. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Exactly why Dudley wanted a racing bike was a mystery to Harry, as Dudley was a big heckin' chonker and hated movement - unless of course it involved throwing hands. Dudley's favorite punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was fast af.
+Once clothed he made his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Exactly why Dudley wanted a racing bike was a mystery to Harry, as Dudley was a big heckin' chonker and hated movement - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was fast af.
 
 Probably had something to do with living in a dark cupboard, but Harry had always been smol and skinny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was about four times as thicc as him. He wore round glasses held together with a lot of Scotch tape because of all the times he had caught Dudley's hands. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember, and the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
@@ -35,7 +35,7 @@ Probably had something to do with living in a dark cupboard, but Harry had alway
 
 Don't ask questions - that was the number one rule for to live a basic life with the Dursleys.
 
-Uncle Vernon entered the kitchen as Harry was turning over the bacon.
+Uncle Vernon entered the kitchen as Harry was flippin' over the bacon.
 
 "Comb your hair!" he barked, by way of a morning greeting.
 
@@ -47,11 +47,11 @@ Harry put the feast of eggs and bacon on the table, which was difficult because 
 
 "Thirty-six," he mathed, looking up at his mother and father. "That's two less than last year."
 
-"Darling, you haven't counted Auntie Marge's present, see, it's here under this big one from Mommy and Daddy."
+"Bae, you haven't counted Auntie Marge's present, see, it's here under this big one from Mommy and Daddy."
 
-"All right, thirty-seven then.," said Dudley, color changing to bright red. Harry, who could see a huge Dudley tantrum coming on, began wolfing down his bacon as fast as possible in case Dudley turned the table over. 
+"All right, thirty-seven then.," said Dudley, color changing to bright red. Harry, who could see a huge Dudley tantrum coming on, began chugging down his bacon as fast as possible in case Dudley turned the table over. 
 
-Aunt Petunia saw the red flags, too, because she said quickly, "And we'll buy you another two presents while we're out today. How's that, popkin? Two more presents. Is that all right?"
+Aunt Petunia saw the red flags, too, because she said quickly, "And we'll buy you another two presents while we're out today. How's that, qt? Two more gifts. Is that all right?"
 
 Dudley strained as the wheels turned in his head, ever so slowly. "So I'll have thirty... thirty..."
 
@@ -63,17 +63,17 @@ Uncle Vernon chuckled.
 
 "Lil dude just wants to get his money's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
 
-At that moment the telephone rang and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a bluray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
+At that moment the telephone rang and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a blueray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
 
 "Bad news, Vernon," she said. "Mrs. Figg's broken her leg. She can't take him." She jerked her head in Harry's direction. 
 
-Dudley's mouth fell open in horror, but Harry's heart gave a leap. Every year on Dudley's birthday, his parents took him and a friend out for the day, to totally awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. Figg, a crazy old bat who lived two streets away. Harry hated it there. The whole house smelled of cabbage and Mrs. Figg made him look at pics of all the cats she'd ever owned. 
+Dudley's mouth fell open in horror, but Harry's heart gave a leap. Every year on Dudley's birthday, his parents took him and a friend out for the day, to totally awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house smelled of cabbage and Mrs. Figg made him look at pics of all the cats she'd ever owned. 
 
 "Now what?" said Aunt Petunia, looking furiously at Harry as though he had schemed the whole thing. Harry knew he ought to care that Mrs. Figg's leg was broke, but it wasn't easy when he reminded himself that it would be a whole year before he had to look at Tibbles, Snowy, Mr. Paws, and Tufty again. 
 
 "We could text Marge," Uncle Vernon suggested.
 
-"You're joking, right? She hates the boi."
+"You're kiddin', right? She hates the boi."
 
 The Dursley's often spoke about Harry like this, as though he wasn't there - or rather, as though he was something cringe that couldn't understand them, like a slug.
 
@@ -85,9 +85,9 @@ The Dursley's often spoke about Harry like this, as though he wasn't there - or 
 
 Aunt Petunia looked as though she'd just swallowed a lemon. 
 
-"And come back and find the house in ruins?" she snarled.
+"And come back and find the house in ruins?" she bitched.
 
-"I won't blow up the house," said Harry, but they weren't listening. 
+"I won't blow up the house," said Harry, but they were boycotting him. 
 
 "I suppose we could take him to the zoo," said Aunt Petunia slowly. "... and leave him in the car..."
 
@@ -105,35 +105,35 @@ Half an hour later, Harry, who couldn't believe his luck, was sitting in the bac
 
 "I'm warning you," he had said, putting his large purple face all up in Harry's grill. "I'm warning you now, boi - any funny business, anything at all - and you'll be in that cupboard from now until Christmas."
 
-"I'm not going to do anything," said Harry. "Legit..."
+"I'm not going to do anything bro," said Harry. "Legit..."
 
 But Uncle Vernon didn't believe him. No one ever did. 
 
-The problem was, strange things often happened around Harry and it was no good telling the Dursleys he didn't make them happen. 
+The problem was, weird shit often happened around Harry and it was no good telling the Dursleys he didn't do things. 
 
-Once, Aunt Petunia, tired of Harry coming back from Great Clips looking as though he hadn't been there at all, had taken a pair of kitchen scissors and cut his hair so short he was almost bald except for his bangs, which she left "to hide that cringe disfigurement." Dudley had laughed himself silly at Harry, who spent a sleepless night imagining school the next day, where he was already teased for his lack of style. Next morning, however, he had gotten up to find his hair exactly as it had been before Aunt Petunia had sheared it off. He had been given a week in his cupboard for this, even though he had tried to explain that he couldn't explain how it had grown back so quickly. 
+Once, Aunt Petunia, tired of Harry coming back from Great Clips looking as though he hadn't been there at all, had taken a pair of kitchen scissors and cut his hair so short he was almost bald except for his bangs, which she left "to hide that cringe disfigurement." Dudley had laughed himself silly at Harry, who spent a sleepless night imagining school the next day, where he was already teased for his lack of style. Next morning, however, he had gotten up to find his hair exactly as it had been before Aunt Petunia had sheared it off. He had been given a week in his cupboard for this, even though he had tried to explain that he couldn't explain how it had grown back so quickly. Not cool.
 
-Another time, Aunt Petunia had been trying to force him into a revolting old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it might have fit a barbie doll, but certainly wouldn't fit Harry. Aunt Petunia decided it must have shrunk in the wash and, to his great relief, Harry wasn't punished.
+Another time, Aunt Petunia had been trying to force him into a revolting old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it might have fit a barbie doll, but certainly wouldn't fit Harry. Aunt Petunia decided it must have shrunk in the wash and, to his great relief, Harry wasn't punished. 
 
 On the other hand, he'd gotten into terrible trouble for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's surprise as anyone else's, there he was sitting on the chimney. The Dursley's received a very angry letter from Harry's headmistress telling them Harry had been climbing school buildings. But all he'd tried to do (as he shouted at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have caught him mid-jump. 
 
-But today, nothing was going to go wrong. It was even worth being with Dudley and Piers to be spending the day somewhere that wasn't school, his cupboard, or Mrs. Figg's cabbage=-smelling living room. 
+But today, nothing was going to go wrong. It was even worth being with Dudley and Piers to be spending the day somewhere that wasn't school, his cupboard, or Mrs. Figg's cabbage smelling living room. 
 
-While he drove, Uncle Vernon complained to Aunt Petunia. He liked to complain about things: people at work, Harry, the council, Harry, the bank, and Harry were just a few of his favorite subjects. This morning it was motorcycles. 
+While he drove, Uncle Vernon complained to Aunt Petunia. He liked to complain about things: people at work, Harry, the council, the bank, and Harry were just a few of his favorite subjects. This morning it was motorcycles. 
 
 "...roaring along like maniacs, the young gangstas,: he said as a motorcycle overtook them.
 
 "I had a dream about a motorcyle," said Harry, remembering it suddenly. "It was flying."
 
-Uncle Vernon nearly crashed into the car in front. He turned right around in his seat and yelled at Harrry, his face like a giant beet with a mustache: "MOTORCYCLES DON'T FLY"
+Uncle Vernon nearly crashed into the car in front. He turned right around in his seat and yelled at Harry, his face like a giant beet with a mustache: "MOTORCYCLES DON'T FLY DUDE"
 
-Dudley and Piers sniggered. 
+Dudley and Piers were laughing their asses of. 
 
 "I know they don't," said Harry. "It was only a dream."
 
 Big yikes, he wished he hadn't said anything. If there was one thing the Dursleys hated even more than him asking questions, it was his talking about anything acting in abnormally, no matter if it was a dream or cartoon - they seemed think he might get dangerous ideas. 
 
-It was a very sunny Saturday and the zoo was crowded with fams. The Dursleys bought Dudley and Piers large chocolate ice creams at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could hurry him away, they bought him a cheap lemon ice pop. It wasn't bad either, Harry thought, licking it as they watched a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
+It was a very sunny Saturday and the zoo was crowded with fams. The Dursleys bought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could hurry him away, they bought him a off-brand lemon ice pop. It wasn't bad either, Harry thought, licking it as they watched a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
 
 Harry had the best morning he'd had in a long time. He was careful to walk a little way apart from the Dursleys so that he wouldn't catch hands from Dudley and Piers, who were starting to get bored of the animals by lunchtime. They ate in a zoo restaurant, and when Dudley had a tantrum because his kickerbocker glory didn't have enough ice cream on top, Uncle Vernon bought him another one and Harry was allowed to finish the first. 
 
