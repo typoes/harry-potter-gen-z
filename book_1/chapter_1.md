@@ -9,7 +9,7 @@ He was a dummy thiccc (w/ three Cs) man with hardly any neck, although he had an
 
 The Dursleys had a small son called Dudley who they thought was the main character. The Dursleys were mostly thriving, but they also had lowkey tea which didn't pass the vibe check and their greatest fear was to get called out and cancelled. They were girlbossing too close to the sun and didn't think their clout could bounce back if their fam, the Potters, were revealed. Milf Lily Potter was Mrs. Dursley's sis, but Mrs. D had gone ghost; in fact, Mrs. D pretended she didn't have a sister, because Lil and her deadbeat hubby were straight up cringe. If the neighbors ever caught sight of the Potters, it'd be a big yikes. The Dursleys knew the Potters had a tiny boi, too, but they had never even seen him. This boy was another good reason for keeping the in-laws away; they didn't want Dudley mixing with a gross being like that.
 
-When Mr. and Mrs. Dursley woke up on the dull, gray (fight me) Tuesday our story starts, there was nothing about the cloudy sky outside to suggest that strange and mysterious things would soon be happening all over the country. Mr. Dursley hummed as he picked out his most boring tie for work, and Mrs. Dursley spilled the tea as she was tryna put a screaming Dudley into his heckin high chair.
+When Mr. and Mrs. Dursley woke up on the dull, gray (fight me) Tuesday our story starts, there was nothing about the cloudy sky outside to predict the wonky shit about to happen all over the country. Mr. Dursley hummed as he picked out his most boring tie for work, and Mrs. Dursley spilled the tea as she was tryna put a screaming Dudley into his heckin high chair.
 
 None of them noticed a chonky, tawny owl flutter past the window.
 
