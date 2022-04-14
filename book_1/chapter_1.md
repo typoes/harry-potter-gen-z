@@ -203,7 +203,7 @@ Wiping his streaming eyes on his jacket sleeve, Hagrid swung himself onto the mo
 
 "See ya soon, G," said Dumbledore, nodding to her. Professor McGonagall blew her nose in reply.
 
-Dumbledore walked off into the night. On the corner he stopped and took out the silver Put-Outer. He clicked it once, and twelve balls fo light sped back to their street lamps so that Privet Drive glowed suddenly orange and he could make out a tabby cat slinking around the corner at the other end of the street. He could just see the bundle of blankets on the step of number four.
+Dumbledore walked off into the night. On the corner he stopped and took out the silver Put-Outer. He clicked it once, and twelve balls of light sped back to their street lamps so that Privet Drive glowed suddenly orange and he could make out a tabby cat slinking around the corner at the other end of the street. He could just see the bundle of blankets on the step of number four.
 
 "Gl, Harry," he murmured. He spun on his heel, swished his cloak, and vanished into the night.
 
