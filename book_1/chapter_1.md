@@ -73,7 +73,7 @@ Hahahaha, nope.
 
 Mr. Dursley was drifting off uneasily, but the floof outside was on high alert. Like a fuzzy statue with penetrating eyes, it stared unblinking at the far corner of Privet Drive. It showed superb chill as the world happened around it.
 
-An ancient man appeared on the corner the cat had been protec on Privet Drive. He was tall, thin, and very old with a boss beard long enough to tuck into his belt. He was slaying in his long robes, a purple cloack that swept the ground, and high-heeled, buckled boots. His blu eyes were light, bright, and sparkling behind half-moon spectacles and his honker was long and crooked as though he had been punched in the face before. This ya boi, Albus Dumbledore.
+An ancient man appeared on the corner the cat had been protec on Privet Drive. He was tall, thin, and very old with a boss beard long enough to tuck into his belt. He was slaying in his long robes, a purple cloak that swept the ground, and high-heeled, buckled boots. His blu eyes were light, bright, and sparkling behind half-moon spectacles and his honker was long and crooked as though he had been punched in the face before. This ya boi, Albus Dumbledore.
 
 Albus Dumbledore was super chill about the fact that he wasn’t wanted on this street. He was busy doing a self body cavity search until he felt the gaze of the catto. He chuckled and muttered, "I should have known."
 
