@@ -41,7 +41,7 @@ Uncle Vernon entered the kitchen as Harry was flippin' over the bacon.
 
 Bout once a week, Uncle Vernon looked over the top of his tablet and shouted that Harry needed a new do. Harry must have had more haircuts than the rest of the bois in his class together, but it made no difference, his hair simply grew that way - like an overfertilized chia pet. 
 
-Harry was frying eggs by the time Dudley arrived int he kitchen with his mom. Dudley was a mini-me of Uncle Vernon. He had a chonky pink face, hardly any neck, smol watery blue eyes, and lotsa blonde hair that lay flat upon his thicc head. Aunt Petunia often said that Dudley looked like a baby angel - Harry often said that he looked like a rejected plus size cabbage patch doll. 
+Harry was frying eggs by the time Dudley arrived in the kitchen with his mom. Dudley was a mini-me of Uncle Vernon. He had a chonky pink face, hardly any neck, smol watery blue eyes, and lotsa blonde hair that lay flat upon his thicc head. Aunt Petunia often said that Dudley looked like a baby angel - Harry often said that he looked like a rejected plus size cabbage patch doll. 
 
 Harry put the feast of eggs and bacon on the table, which was difficult because there wasn't much room. Dudley, meanwhile, was counting his presents. His entitled face fell. 
 
@@ -49,7 +49,7 @@ Harry put the feast of eggs and bacon on the table, which was difficult because 
 
 "Bae, you haven't counted Auntie Marge's present, see, it's here under this big one from Mommy and Daddy."
 
-"All right, thirty-seven then.," said Dudley, color changing to bright red. Harry, who could see a huge Dudley tantrum coming on, began chugging down his bacon as fast as possible in case Dudley turned the table over. 
+"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who could see a huge Dudley tantrum coming on, began chugging down his bacon as fast as possible in case Dudley turned the table over. 
 
 Aunt Petunia saw the red flags, too, because she said quickly, "And we'll buy you another two presents while we're out today. How's that, qt? Two more gifts. Is that all right?"
 
@@ -81,7 +81,7 @@ The Dursley's often spoke about Harry like this, as though he wasn't there - or 
 
 "On vacay in Majorca," snapped Aunt Petunia. 
 
-"You could just leave me here," Harry put in hopefully (he'd be able to watch what wanted on Netflix for a change and maybe even troll the forums on Dudley's chromebook). 
+"You could just leave me here," Harry put in hopefully (he'd be able to watch what he wanted on Netflix for a change and maybe even troll the forums on Dudley's chromebook). 
 
 Aunt Petunia looked as though she'd just swallowed a lemon. 
 
@@ -131,9 +131,9 @@ Dudley and Piers were laughing their asses of.
 
 "I know they don't," said Harry. "It was only a dream."
 
-Big yikes, he wished he hadn't said anything. If there was one thing the Dursleys hated even more than him asking questions, it was his talking about anything acting in abnormally, no matter if it was a dream or cartoon - they seemed think he might get dangerous ideas. 
+Big yikes, he wished he hadn't said anything. If there was one thing the Dursleys hated even more than him asking questions, it was his talking about anything acting abnormally, no matter if it was a dream or cartoon - they seemed to think he might get dangerous ideas. 
 
-It was a very sunny Saturday and the zoo was crowded with fams. The Dursleys bought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could hurry him away, they bought him a off-brand lemon ice pop. It wasn't bad either, Harry thought, licking it as they watched a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
+It was a very sunny Saturday and the zoo was crowded with fams. The Dursleys bought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could hurry him away, they bought him an off-brand lemon ice pop. It wasn't bad either, Harry thought, licking it as they watched a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
 
 Harry had the best morning he'd had in a long time. He was careful to walk a little way apart from the Dursleys so that he wouldn't catch hands from Dudley and Piers, who were starting to get bored of the animals by lunchtime. They ate in a zoo restaurant, and when Dudley had a tantrum because his kickerbocker glory didn't have enough ice cream on top, Uncle Vernon bought him another one and Harry was allowed to finish the first. 
 
