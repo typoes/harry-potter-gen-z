@@ -33,7 +33,7 @@ Probably had something to do with living in a dark cupboard, but Harry had alway
 
 "When your parents wrecked their whip and died," she had said. "And don't ask questions."
 
-Don't ask questions - that was the number one rule for to live a basic life with the Dursleys.
+Don't ask questions - that was the number one rule for living a basic life with the Dursleys.
 
 Uncle Vernon entered the kitchen as Harry was flippin' over the bacon.
 
