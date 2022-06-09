@@ -1,8 +1,8 @@
 BOOM. They knocked again. Dudley jerked awake.
 "Where's the cannon?" he said stupidly, in a smooth-brained fashion.
 There was a crash behind them and Uncle Vernon came skidding into the room. He was
-holding a rifle in his hands - now they knew what had been in the long, thin package (that's what she said) he had
-brought with them.
+holding a rifle in his hands - now they knew what had been in the long, thin package
+(that's what she said) he had brought with them.
 "Who's there?" he shouted. "I warn you -- I'm armed and I'm majorly triggered!"
 There was a pause. Then --
 SMASH!
