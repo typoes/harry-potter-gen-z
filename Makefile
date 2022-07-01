@@ -1,6 +1,7 @@
 .PHONY: all clean
 
 BOOK1=Harry Potter and the Smart-Ass Stones
+BOOK2=Harry Potter and the chamber of ratios
 BOOK4=Harry Potter and the Chug Jug of Fiya
 
 all: book_1.epub book_4.epub
