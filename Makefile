@@ -15,3 +15,4 @@ book_4.epub: book_4/*.md
 
 clean:
 	rm -f *.epub
+BOOK4= harry potter and the big green joint
