@@ -17,7 +17,7 @@ book_4.epub: book_4/*.md
 	
 book3: book_3.epub
 book_3.epub: book_3/*.md
-        pandoc book_3/*.md -o "book_3.epub" --metadata title="$(BOOK3)"
+	pandoc book_3/*.md -o "book_3.epub" --metadata title="$(BOOK3)"
 	
 clean:
 	rm -f *.epub
