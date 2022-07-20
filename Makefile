@@ -1,6 +1,7 @@
 .PHONY: all clean
 
 BOOK1=Harry Potter and the Smart-Ass Stones
+BOOK2=Harry Potter and the chamber of ratios
 BOOK4=Harry Potter and the Chug Jug of Fiya
 BOOK3=Harry potter and the Locked-up Dude
 
