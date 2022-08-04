@@ -7,21 +7,6 @@ _**Anyone**_ is able to contribute by suggesting changes to files, as long as yo
 approved, so your changes will not be reflected immediately. If you created a change successfully, you should see it appear here:
 
 https://github.com/typoes/harry-potter-gen-z/pulls
-## Book Index:
-
-#### 1 - [Harry Potter and the Smart-Ass Stones](https://github.com/typoes/harry-potter-gen-z/tree/main/book_1)
-  1. [The Boy Who Wan't Unalived](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_1.md)
-  2. [The Glass That Yeeted Itself](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_2.md)
-  3. [The Letters from Ur Mom](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_3.md)
-  4. [The Keeper of the Keys](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_4.md)
-  
-#### 2 - Harry Potter and the Chamber of Ratios
-#### 3 - Harry Potter and the Locked-up Dude
-#### 4 - [Harry Potter and the Chug Jug of Fiya](https://github.com/typoes/harry-potter-gen-z/tree/main/book_4)
-  17. [*The Four Champions*](https://github.com/typoes/harry-potter-gen-z/blob/main/book_4/chapter_17.md)
-#### 5 - *Harry Potter and the Order of the Phoenix*
-#### 6 - *Harry Potter and the Half-Blood Prince*
-#### 7 - *Harry Potter and the Deathly Hallows*
 
 ## How to make changes 
 There are a couple of different ways to make changes, but the screenshots below are easiest for those who have never used GitHub. 
@@ -45,3 +30,19 @@ If the box at the bottom does not show the changes you made in green, you may ha
 
 To build the epubs, install Pandoc, and run `make all` in a terminal. If you're on Windows, like me, using
 [Chocolatey](https://chocolatey.org/install) to install both `make` and `pandoc` is the easiest way I know.
+
+## Book Index:
+
+#### 1 - [Harry Potter and the Smart-Ass Stones](https://github.com/typoes/harry-potter-gen-z/tree/main/book_1)
+  1. [The Boy Who Wan't Unalived](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_1.md)
+  2. [The Glass That Yeeted Itself](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_2.md)
+  3. [The Letters from Ur Mom](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_3.md)
+  4. [The Keeper of the Keys](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_4.md)
+  
+#### 2 - Harry Potter and the Chamber of Ratios
+#### 3 - Harry Potter and the Locked-up Dude
+#### 4 - [Harry Potter and the Chug Jug of Fiya](https://github.com/typoes/harry-potter-gen-z/tree/main/book_4)
+  17. [*The Four Champions*](https://github.com/typoes/harry-potter-gen-z/blob/main/book_4/chapter_17.md)
+#### 5 - *Harry Potter and the Order of the Phoenix*
+#### 6 - *Harry Potter and the Half-Blood Prince*
+#### 7 - *Harry Potter and the Deathly Hallows*
