@@ -103,7 +103,7 @@ Da Big V's attack, but Harry had escaped with his lightning scar, and somehow --
 Daddy Voldemort's powers had been yeeted the instant he had failed to 
 postpartally abort Harry.
 
-So Harry had been brought up by his dead mom's sis and her husban'. He had spent years with the Dursleys
+So Harry had been brought up by his dead mum's sis and her husban'. He had spent years with the Dursleys
 never understanding why he kept making odd things happen without meaning to, believing the Dursleys' story
 that he had got his scar in the car crash that killed his parents.
 
