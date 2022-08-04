@@ -4,6 +4,9 @@
   - This is a list of all the chapters in the Harry Potter books.
      Can be used for coming up with names and for the illustrations
      at the beginning of each chapter.
+     
+#### [The Books](https://www.onlinereadfreebooks.com/en/author/j-k-rowling)
+  - The actual books. 
 
 #### [Urban Dictionary](https://www.urbandictionary.com/)
   - Can be used for looking up slang and their definitions.
