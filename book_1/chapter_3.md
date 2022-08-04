@@ -76,10 +76,10 @@ They heard the click of the mail slot and flop of letters on the doormat.
 
 Harry dodged the Smelting stick and went to get the mail. Three things lay on the doormat: a
 postcard from Uncle Vernon’s sister Marge, who was vacationing on the Isle of Wight, a brown
-envelope that looked like a bill, and — WTF, a letter for Harry.
+envelope that looked like a bill, and — YO TF, a letter for Harry.
 
 Harry picked it up and stared at it, his heart twanging like a giant elastic band. No one, ever, in
-his whole life, had written to him. Who would? He was lonely and depressed af, he had no friends, no other relatives — he didn’t
+his whole life, had written to him. Who would? He was lonely and depressed af, he had no friends, no other fam — he didn’t
 belong to the library, so he’d never even got rude notes asking for books back. Yet here it was, a
 letter, addressed so plainly there could be no cap:
 Mr. H. Potter
@@ -89,7 +89,7 @@ The Cupboard under the Stairs
 Little Whinging
 Surrey
 
-The envelope was thicc and heavy, made of crusty, yellowish parchment, and the address was written in
+The envelope was chonkie, made of crusty, yellowish parchment, and the address was written in
 emerald-green ink. There was no stamp. 
 
 Turning the envelope over, his hand trembling, Harry saw a purple wax seal bearing a coat of
@@ -100,18 +100,18 @@ arms; a lion, an eagle, a badger, and a snake surrounding a large letter H.
 Harry went back to the kitchen, still staring at his letter. He handed Uncle Vernon the bill and the
 postcard, sat down, and slowly began to open the yellow envelope.
 
-Uncle Vernon ripped open the bill, snorted in disgust, and flipped over the postcard.
+Uncle Vernon ripped open the bill, cringed in disgust— (thinking he was too good for such things), and flipped over the postcard.
 
 “Marge’s ill,” he informed Aunt Petunia. “Ate a funny whelk…”
 
-“Dad!” said Dudley suddenly. “Dad, Harry’s got something very sus!”
+“Dad!” said Dudley suddenly. “Dad, Harry’s got somepin kinda sus!”
 
 Harry was on the point of unfolding his letter, which was written on the same heavy parchment
 as the envelope, when it was jerked sharply out of his hand by Uncle Vernon.
 
 “That’s mine!” said Harry, trying to snatch it back.
 
-“Bet. Who’d be writing to you?” sneered Uncle Vernon, shaking the letter open with one hand and
+“Bet. Who’d be writing ya?” sneered Uncle Vernon, shaking the letter open with one hand and
 glancing at it. His face went from red to green faster than a set of traffic lights. And it didn’t stop
 there. Within seconds it was the grayish white of old porridge.
 
@@ -128,9 +128,9 @@ Smelting stick.
 
 “I want to read that letter,” he said loudly.
 
-“I want to read it,” said Harry furiously, “as it’s mine. No cap. Fax, no printer.”
+“I wanna read it,” said Harry furiously, “it’s mine.”
 
-“Get out, both of you,” croaked Uncle Vernon, stuffing the letter back inside its envelope.
+“Get out, you bozo's,” croaked Uncle Vernon, stuffing the letter back inside its envelope.
 
 Harry didn’t move. 
 
@@ -140,9 +140,9 @@ Harry didn’t move.
 
 “OUT!” roared Uncle Vernon, and he took both Harry and Dudley by the scruffs of their necks
 and threw them into the hall, slamming the kitchen door behind them. Harry and Dudley
-promptly had a furious but silent fight over who would listen at the keyhole; Dudley won, so
-Harry, his glasses dangling from one ear, lay flat on his stomach to listen at the crack between
-door and floor. Harry considered venting into the room like the sussy amogus imposter he was, but eventually decided against it.
+promptly had a lil sissy-fight over who would listen at the keyhole; Dudley won, so
+Harry, his glasses dangling from one ear, lay flat on his stomach to peep through the crack between
+door and floor. Harry considered venting into the room like the sussy imposter he was, but eventually decided against it.
 
 “Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they
 possibly know where he sleeps? You don’t think they’re watching the house?”
@@ -153,19 +153,19 @@ possibly know where he sleeps? You don’t think they’re watching the house?�
 
 Harry could see Uncle Vernon’s shiny, drippy black shoes pacing up and down the kitchen.
 
-“No,” he said finally. “No, we’ll ignore it. If they don’t get an answer… Yes, that’s best… we
+“No,” he said finally. “No, we’ll ghost 'em. If they don’t get an answer… Yes, that’s best… we
 won’t do anything…”
 
 “But —”
 
-“I’m not having one in the house, Petunia! Didn’t we swear when we took him in we’d stamp out
+“I’m not having one in the house, Petunia! Didn’t we swear when we took him in we’d gatekeep
 that dangerous nonsense?”
 
-That evening when he got back from work, Uncle Vernon did something he’d never done before;
+That evening when he got back from adulting for money, Uncle Vernon did something he’d never done before;
 he visited Harry in his cupboard.
 
 “Where’s my letter?” said Harry, the moment Uncle Vernon had squeezed through the door.
-“Who’s writing to me?”
+“Who’s writin' me?”
 
 “No one. It was addressed to you by mistake,” said Uncle Vernon shortly. “I have burned it.”
 
