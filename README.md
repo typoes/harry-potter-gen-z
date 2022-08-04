@@ -3,8 +3,10 @@ Harry Potter: The Gen Z Edition
 
 This project provides a place for anyone to collaborate on Harry Potter: The Gen Z edition, inspired by [this Reddit post](https://www.reddit.com/r/harrypotter/comments/r87mvh/accidentally_bought_the_gen_z_how_do_you_do/).
 
-_**Anyone**_ is able to contribute by suggesting changes to files, as long as you have a GitHub account. It has to manually be approved, so your changes will not be reflected immediately. If you created a change successfully, you should see it appear here: https://github.com/typoes/harry-potter-gen-z/pulls
+_**Anyone**_ is able to contribute by suggesting changes to files, as long as you have a GitHub account. It has to manually be
+approved, so your changes will not be reflected immediately. If you created a change successfully, you should see it appear here:
 
+https://github.com/typoes/harry-potter-gen-z/pulls
 ## Book Index:
 
 #### 1 - [Harry Potter and the Smart-Ass Stones](https://github.com/typoes/harry-potter-gen-z/tree/main/book_1)
@@ -41,3 +43,5 @@ If the box at the bottom does not show the changes you made in green, you may ha
 
 ![image](https://user-images.githubusercontent.com/95908057/145547218-b8f2ed29-1ff6-4d2e-a054-efb91f1b13d0.png)
 
+To build the epubs, install Pandoc, and run `make all` in a terminal. If you're on Windows, like me, using
+[Chocolatey](https://chocolatey.org/install) to install both `make` and `pandoc` is the easiest way I know.
