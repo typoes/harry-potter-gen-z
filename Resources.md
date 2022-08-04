@@ -7,6 +7,9 @@
      
 #### [The Books](https://www.onlinereadfreebooks.com/en/author/j-k-rowling)
   - The actual books. 
+  
+#### [Chapter Art](https://www.harrypotterfanzone.com/chapter-art/)
+  - All chapter illustrations from the books.
 
 #### [Urban Dictionary](https://www.urbandictionary.com/)
   - Can be used for looking up slang and their definitions.
