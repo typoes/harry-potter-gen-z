@@ -4,7 +4,7 @@
 <img src="https://static.wikia.nocookie.net/harrypotterbooks/images/b/bb/TheBirthday.jpeg" width="300" height="230">
 
 Not for the first time, an argument had broken out over breakfast at number four, Privet Drive.
-Mr. Vernon Dursley had been woken in the early hours of the morning by a loud hooting noise from
+Mr. Vernon Dursley had been woken in the early hours of the morning by a loud yapping from
 his nephew Harry's room.
 
 "Third time this week!" he roared across the table. "If you can't control that owl, it'll have
@@ -12,10 +12,10 @@ to go!"
 
 Harry tried, yet again, to explain.
 
-"She's *bored*," he said. "She's used to flying around outside. If I could just let her out at
+"She's *bored*," he said. "Sitting in this house is unbased. If you would stop gatekeeping: I could let her out at
 night-"
 
-"Do I look stupid?" snarled Uncle Vernon, a bit of fried egg dangling from his bushy mustache.
+"Do I look stupid?" snarled Uncle Vernon, a bit of fried egg dangling from his floofy mustache.
 "I know what'll happen if that owl's let out."
 
 He exchanged dark looks with his wife, Petunia.
@@ -25,19 +25,19 @@ son, Dudley.
 
 "I want more bacon."
 
-"There's more in the frying pan, sweetums," said Aunt Petunia, turning misty eyes on her massive
-son. "We must build you up while we've got the chance.... I don't like the sound of that school
+"There's more in the frying pan, sweetums," said Aunt Petunia, turning misty eyes on her fucking massive
+son. "We must build you up while we've got the chance.... I don't like the sound of that nasty school
 food...."
 
-"Nonsense, Petunia, I never went hungry when *I* was at Smeltings," said Uncle Vernon heartily.
-"Dudley gets enough, don't you, son?"
+"Nonsense, Petunia, back in my day I never went hungry when *I* was at Smeltings," said Uncle Vernon heartily.
+"Dudley gets enough, don't you, son???"
 
 Dudley, who was so large his bottom drooped over either side of the kitchen chair, grinned and
 turned to Harry.
 
 "Pass the frying pan."
 
-"You've forgotten the magic word," said Harry irritably.
+"You've forgotten the mAgIc wOrd," said Harry irritably.
 
 The effect of this simple sentence on the rest of the family was incredible: Dudley gasped and
 fell off his chair with a crash that shook the whole kitchen; Mrs. Dursley gave a small scream
@@ -66,11 +66,11 @@ Uncle Vernon sat back down, breathing like a winded rhinoceros and watching Harr
 the corners of his small, sharp eyes.
 
 Ever since Harry had come home for the summer holidays, Uncle Vernon had been treating him like
-a bomb that might go off at any moment, because Harry Potter *wasn't* a normal boy. As a matter of
-fact, he was as not normal as it is possible to be.
+a bomb that might go off at any moment, because Harry Potter *wasn't* a basic boy. As a matter of
+fact, he was as quirky as it is possible to be.
 
 Harry Potter was a wizard -- a wizard fresh from his first year at Hogwarts School of Witchcraft and
-Wizardry. And if the Dursleys were unhappy to have him back for the holidays, it was nothing to how
+Wizardry. And if the Dursleys were unhappy to have him back for the holidays, it ain't shit to how
 Harry felt.
 
 He missed Hogwarts so much it felt like having a constant stomachache. He missed the castle, with its
@@ -83,14 +83,14 @@ flying balls, and fourteen players on broomsticks).
 All Harry's spellbooks, his wand, robes, cauldron, and top-of-the-line Nimbus Two Thousand broomstick
 had been locked in a cupboard under the stairs by Uncle Vernon the instant Harry had come home. What
 did the Dursleys care if Harry lost his place on the House Quidditch team because he hadn't practiced
-all summer? The Dursleys were what wizards called Muggles (not a drop of magical blood in their veins),
+all summer? The Dursleys were what wizards called **Muggles** (not a drop of magical blood in their veins),
 and as far as they were concerned, having a wizard in the family was a matter of deepest shame. Uncle
 Vernon had even padlocked Harry's owl, Hedwig, inside her cage, to stop her from carrying messages to
 anyone in the Wizarding world.
 
-Harry looked nothing like the rest of the family. Uncle Vernon was large and neckless, with an enormous
-black mustache; Aunt Petunia was horse-faced and bony; Dudley was blonde, pink, and porky. Harry on the
-other hand, was small and skinny, with brilliant green eyes and jet-black hair that was always untidy.
+Harry looked nothing like the rest of the family. Uncle Vernon was large and neckless, with an thicc
+black 'stache; Aunt Petunia was horse-faced and bony; Dudley was blonde, pink, and an all-around chonker. Harry on the
+other hand, was a small boi, with brilliant green eyes and jet-black hair that was always untidy.
 He wore round glasses, and on his forehead was a thin, lightning-shaped scar.
 
 It was this scar that made Harry so particularly unusual, even for a wizard. This scar was the only hint
@@ -99,19 +99,20 @@ before.
 
 At the age of one year old, Harry had somehow survived a curse from the greatest Dark sorcerer of all time,
 Lord Voldemort, whose name most witches and wizards still feared to speak. Harry's parents had died in
-Voldemort's attack, but Harry had escaped with his lightning scar, and somehow -- nobody understood why --
-Voldemort's powers had been destroyed the instant he had failed to kill Harry.
+Da Big V's attack, but Harry had escaped with his lightning scar, and somehow -- nobody understood why --
+Daddy Voldemort's powers had been yeeted the instant he had failed to 
+postpartally abort Harry.
 
-So Harry had been brought up by his dead mother's sister and her husband. He had spent years with the Dursleys
+So Harry had been brought up by his dead mum's sis and her husban'. He had spent years with the Dursleys
 never understanding why he kept making odd things happen without meaning to, believing the Dursleys' story
 that he had got his scar in the car crash that killed his parents.
 
 And then, exactly a year ago, Hogwarts had written to Harry, and the whole story had come out. Harry had taken
 up his place at wizard school, where he and his scar were famous... but now the school year was over, and he
-was back with the Dursleys for the summer, back to being treated like a dog that had rolled in something smelly.
+was back with the Dursleys for the summer, back to being treated like a stanky dog that had rolled in something sus.
 
 The Dursleys hadn't even remembered that today happened to be Harry's twelfth birthday. Of course, his
-hopes hadn't been high; they'd never given him a real present, let alone a cake --  but to ignore it
+hopes hadn't been high; they'd never given him a real present, let alone a cake --  but to always dis it
 completely...
 
 At that moment, Uncle Vernon cleared his throat importantly and said, "Now, as we all know, today is a
@@ -123,7 +124,7 @@ Harry looked up, hardly daring to believe it.
 
 Harry went back to his toast. *Of course*, he thought bitterly, *Uncle Vernon was talking about his stupid
 dinner party*. He'd been talking of nothing else for two weeks. Some rich builder and his wife were coming
-to dinner and Uncle vernon was hoping to get a huge order from him (Uncle Vernon's company made drills.)
+to dinner and Uncle vernon was hoping to sell out (Uncle Vernon's company made drills.)
 
 "I think we should run through the schedule one more time," said Uncle Vernon. "We should all be in
 position at eight o'clock. Petunia, you will be -- ?"
@@ -175,7 +176,7 @@ Harry fought to keep his face straight as he emerged.
 
 "I'll be in my room, making no noise and pretending I'm not there," he said.
 
-"Too right, you will," said Uncle Vernon forcefully. "The Masons don't know anything about you and it's
+"Hell yeah," said Uncle Vernon forcefully. "The Masons don't know anything about you and it's
 going to stay that way. When dinner's over, you take Mrs. Mason back to the lounge for coffee, Petunia,
 and I'll bring the subject around to drills. With any luck, I'll have the deal signed and sealed before
 the news at ten. We'll be shopping for a vacation home in Majorca this time tomorrow."
@@ -192,7 +193,7 @@ garden bench, and sang under his breath:
 "Happy birthday to me... happy birthday to me..."
 
 No cards, no presents, and he would be spending the evening pretending to not exist. He gazed miserably
-into the hedge. He had never felt so lonely. More than anything else at Hogwarts, more even than playing
+into the hedge. He had never felt so depresso. More than anything else at Hogwarts, more even than playing
 Quidditch, Harry missed his best friends, Ron Weasley and Hermione Granger. They, however, didn't seem to
 be missing him at all. Neither of them had written to him all summer, even though Ron had said he was going
 to ask Harry to come and stay.
@@ -245,7 +246,7 @@ Dudley stumbled backward at once, a look of panic on his fat face.
 "You c-can't -- Dad told you you're not to do m-magic -- he said he'll chuck you out of the house -- and
 you haven't got any where else to go -- you haven't got any *friends* to take you-"
 
-"*Jiggery pokery!*" said Harry in a fierce voice. "*Hocus pocus* -- *squiggly wiggly*-"
+"*Skidaddle skadoodle,*" said Harry in a fierce voice. "*your dick is now a noodle.*"
 
 "MUUUUUUM!" howled Dudley, tripping over his feet as he dashed back toward the house. "MUUUUM! He's going to
 do you know what!"
