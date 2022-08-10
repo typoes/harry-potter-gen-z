@@ -34,7 +34,7 @@ To build the epubs, install Pandoc, and run `make all` in a terminal. If you're 
 ## Book Index:
 
 #### 1 - [Harry Potter and the Smart-Ass Stones](https://github.com/typoes/harry-potter-gen-z/tree/main/book_1)
-  1. [The Boy Who Wan't Unalived](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_1.md)
+  1. [The Boy Who Wasn't Unalived](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_1.md)
   2. [The Glass That Yeeted Itself](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_2.md)
   3. [The Letters from Ur Mom](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_3.md)
   4. [The Keeper of the Keys](https://github.com/typoes/harry-potter-gen-z/blob/main/book_1/chapter_4.md)
