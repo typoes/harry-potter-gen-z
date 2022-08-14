@@ -121,11 +121,11 @@ She threw a sharp, sideways glance at Dumbledore here, as though hoping he was g
 
 Prof McG shot Dumbledore a sharp look and said, "The birbs are nothing next to this tea they be sipping. Legit what they say has me shook."
 
-Professor McGonagall had obviously reached the point she was most anxious to discuss, the real reason she had been waiting on a cold, hard wall all day, for neither as a cat nor as a woman had she fixed Dumbledore with such a piercing stare as she did now. It was plain that whatever "everyone" was saying, she was not going to believe it until Dumbledore told her there was no cap. Dumbledore, however, was choosing another lemon drop and didn’t answer.
+Prof McG had obvi got to the tea she was most hyped to spill, the real reason she had been vibing on a cold, hard wall all day, for neither as a floof nor as a woman had she looked as high-key invested as she did now. It was obvi that whatever "everyone" was saying, she wasn't gonna buy it until Dumbledore told her there was no cap. Homeboi, however, was choosing another lemon drop and didn’t answer.
 
-"What they’re _saying_," she pressed on, " is that last night Voldemort turned up in Godric’s Hollow. He went to find the Potters. And that he unalived Lily and James Potter!"
+"What they’re _saying_," she pressed on, " is that last night Voldemort spawned in Godric’s Hollow. He went to find the Potters. And that he unalived Lily and James Potter!"
 
-Dumbledore hung his head. Prof McG gasped.
+Dumbledore sadded. Prof McG gasped.
 
 "Lily and James... What the heck... I can't even... Oh, Albus..."
 
@@ -139,21 +139,21 @@ Dumbledore noddled glumly.
 
 "We can only guess," said Dumbledore. "We may never know."
 
-Professor McGonagall pulled out a tissue and dabbed at her eyes beneath her spectacles. Dumbledore gave a great sniff as he took a golden watch from his pocket and examined it. It was a very odd watch. It had twelve hands but no numbers; instead, little planets were moving around the edge. It must have made sense to Dumbledore, though, because he put it back in his pocket and said, "Hagrid’s late. I suppose he's the one who told you I’d be here, btw?"
+Prof McG wiped her eyes and got out her hand sanitizer. Dumbledore gave a great sniff as he took a bussin' watch from his pocket and checked it. It was a very sus watch. It had twelve hands but no numbers; instead, little planets were moving around the edge. It must have made sense to Dumbledore, though, because he put it back in his pocket and said, "Hagrid’s late. I bet he's the one who told you I’d be here, btw?"
 
 "Bet," said Prof McG. "And I don’t suppose you’re going to tell me why you’re here of all places?"
 
-"I’ve come to bring Harry to his aunt and uncle. They’re the only family he has left now."
+"I’ve come to bring Harry to his aunt and uncle. They’re the only fam he has left now."
 
-"You don’t mean – you can’t mean these Karens?!" cried Professor McGonagall, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. These basic fools aren't in the Same WhatsApp group! And their spawn – I saw him kicking his mother all the way up the street screaming for sweets. Harry Potter come and live here?!"
+"You don’t mean – you can’t mean these Karens?!" cried Prof McG, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. These basic fools aren't in the Same WhatsApp group! And their spawn – I saw him kicking his mother all the way up the street screaming for sweets. Harry Potter come and live here?!"
 
 "It’s the best place for him," said Dumbledore firmly. "His aunt and uncle will be able to explain everything to him when he’s older. I’ve written them a letter."
 
-"A _letter_?" repeated Professor McGonagall faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a letter? These people will never understand him! He’ll be famous – legendary – I wouldn’t be shook if today was known as Harry Potter Day in the future – there will be books written about Harry – every child in our world will know his name!"
+"A _letter_?" repeated Prof McG faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a letter? These people will never understand him! He’ll be famous – legendary – I wouldn’t be shook if today was known as Harry Potter Day in the future – there will be books written about Harry – every child in our world will know his name!"
 
 "Bet," said Dumbledore, looking super serious through his specs. "It would be enough to go to anyone's head. An influencer before he can walk and talk! Famous for something he won't even remember! Can't you see how much better off he'll be, growing up away from all that until he's ready to take it?"
 
-Professor McGonagall made fish faces like she was going to say something but thought better. She composed herself then said, "Bet, ikr. But how is the boy getting here, Dumbledore?" She eyed his cloak suddenly as though he thought he was transporting the babin.
+Prof McG made fish faces like she was going to say something but thought better. She composed herself then said, "Bet, ikr. But how is the boy getting here, Dumbledore?" She eyed his cloak suddenly as though he thought he was transporting the babin.
 
 "Hagrid's bringing him."
 
@@ -161,7 +161,7 @@ Professor McGonagall made fish faces like she was going to say something but tho
 
 "I would trust Hagrid with my life," said Dumbledore.
 
-"His heart is G.O.A.T.," said Professor McGonagall grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
+"His heart is G.O.A.T.," said Prof McG grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
 
 A _vroom vroom_ sound broke the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky - a huge motorcycle fell out of the air and landed on the road in front of them.
 
@@ -175,9 +175,9 @@ If the motorcycle was huge, it was nothing compared to the beast of a man stradd
 
 "Nope - house was almost destroyed, but I got him out all right before the Muggles started swarmin' around. He took a napper as we was flyin' over Bristol."
 
-Dumbledore and Professor McGonagall bent forward over the bundle of blankets. Inside, just visible, was the babin, sleepin. Under a tuft of jet-black hair over his forehead they could see a curiously shaped cut, like a bolt of lightning.
+Dumbledore and Prof McG bent forward over the bundle of blankets. Inside, just visible, was the babin, sleepin. Under a tuft of jet-black hair over his forehead they could see a sus af cut, shaped like a bolt of lightning.
 
-"Is that where-?" whispered Professor McGonagall.
+"Is that where-?" whispered Prof McG.
 
 "Bet," said Dumbledore. "He'll have that scar forever."
 
@@ -189,19 +189,19 @@ Dumbledore took Harry in his arms and turned toward the Dursley's house.
 
 "Could I - could I say bye to him, sir?" asked Hagrid. He bent his great, shaggy head over Harry and gave him what must have been a very scratchy, whiskery kiss. Then, suddenly, Hagrid let out a noise like a wounded pupper.
 
-"STFU" hissed Professor McGonagall, "you'll wake the normies!"
+"STFU" hissed Prof McG, "you'll wake the normies!"
 
 "S-s-s-sowwy," sobbed Hagrid, taking out a large spotted handkercheif and burying his face in it. "But I c-c-can't stand it - Lily an' James unalived - an' an' poor lil' Harry off ter live with Muggles -"
 
-"Yeah, no, yeah, tragic, but control yourself, Hagrid, or we'll be found," Professor McGonagall whispered, patting Hagrid gently on the arm as Dumbledore stepped over the low garden wall and walked to the front door. He laid Harry gently on the doorstep, took a letter out of his cloak, tucked it inside Harry's blankets, and then came back to the other two. For a full minute the three of them stood and looked at the little bundle; Hagrid's shoulders shook, Professor McGonagall blinked furiously, and the twinkling light that usually shone from Dumbledore's eyes seemed to have gone out.
+"Yeah, no, yeah, tragic, but control yourself, Hagrid, or we'll be found," Prof McG whispered, patting Hagrid gently on the arm as Dumbledore stepped over the low garden wall and walked to the front door. He laid Harry gently on the doorstep, took a letter out of his cloak, tucked it inside Harry's blankets, and then came back to the other two. For a full minute the three of them stood and looked at the little bundle; Hagrid's shoulders shook, Prof McG blinked furiously, and the twinkling light that usually shone from Dumbledore's eyes seemed to have gone out.
 
 "Whelp," said Dumbledore, finally, "that's that. Time to dip. We may as well go party hearty."
 
-"Yeah," said Hagrid in a very muffled voice, "Finna give Sirius back his ride. G'night, Professor McGonagall - Professor Dumbledore, sir."
+"Yeah," said Hagrid in a very muffled voice, "Finna give Sirius back his ride. G'night, Prof McG - Professor Dumbledore, sir."
 
 Wiping his streaming eyes on his jacket sleeve, Hagrid swung himself onto the motorcycle and kicked the engine into life; with a roar it rose into the air and off into the night.
 
-"See ya soon, G," said Dumbledore, nodding to her. Professor McGonagall blew her nose in reply.
+"See ya soon, G," said Dumbledore, nodding to her. Prof McG blew her nose in reply.
 
 Dumbledore walked off into the night. On the corner he stopped and took out the silver Put-Outer. He clicked it once, and twelve balls of light sped back to their street lamps so that Privet Drive glowed suddenly orange and he could make out a tabby cat slinking around the corner at the other end of the street. He could just see the bundle of blankets on the step of number four.
 
