@@ -1,9 +1,9 @@
 # Chapter 2
 ## THE GLASS THAT YEETED ITSELF
 
-It was like an eternity, like ten years, since the Dursleys had woken up to find their nephew on the front step, but Privet Drive was still super basic. The sun revealed the same front garden and shiny brass number four on the Dursley's front door; it crept into their living room, which was almost identical to the night when Mr. Dursley saw the fateful news report about them hooter birbs. Only the pics on the mantelpiece really showed how much time had passed. Ten years ago, there had been lots of pics of what looked like a chonky ball wearing different colored bonnets - but Dudley Dursley had the worst glo up ever, and now the pics showed a chonky blonde boy riding his first bicycle, on a carousel at the fair, playing Amogus with his dad, being hugged and kissed by his mom. The room lowkey didn't show that another boi lived in the house, too.
+It was like an eternity, like ten years, since the Dursleys had woken up to find their bb nephew on the front step, but Privet Drive was still super basic. The sun revealed the same front garden and shiny brass number four on the Dursley's front door; it crept into their living room, which was almost identical to the night when Mr. Dursley saw the fateful news report about them hooter birbs. Only the pics on the mantelpiece really showed how much time had passed. Ten years ago, there had been lots of pics of what looked like a chonky ball wearing different colored bonnets - but Dudley Dursley had the worst glo up ever, and now the pics showed a chonky blonde boy riding his first bicycle, on a carousel at the fair, playing Amogus with his dad, being xoxo-ed by his mom. The room lowkey didn't show that another boi lived in the house, too.
 
-Yet Harry Potter was still there, asleep at the moment, but not for long. His Aunt Petunia was awake and shrieked in her Karen voice for the first noise of the day.
+Yet Harry Potter was still there, catchin Zs at the moment, but not for long. His Aunt Petunia was awake and shrieked in her Karen voice for the first noise of the day.
 
 "Up! Get up! Now!"
 
@@ -15,9 +15,9 @@ His aunt teleported back outside the door.
 
 "Are you up yet?" she demanded.
 
-"Nearly," said Harry.
+"Kinda," said Harry.
 
-"No cap you need to look after the bacon. And don't you dare let it burn. I want everything perfect on Duddy's birthday."
+"No cap you need to look after the bacon. And don't you dare let it burn. I want everything gucci on Duddy's bday."
 
 Harry groaned. So done.
 
@@ -25,51 +25,51 @@ Harry groaned. So done.
 
 "Nothing, nothing..."
 
-Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the cupboard under the stairs was full of them, and that was his zone.
+Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
 
-Once clothed he made his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Exactly why Dudley wanted a racing bike was a mystery to Harry, as Dudley was a big heckin' chonker and hated movement - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was fast af.
+Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was fast af.
 
-Probably had something to do with living in a dark cupboard, but Harry had always been smol and skinny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was about four times as thicc as him. He wore round glasses held together with a lot of Scotch tape because of all the times he had caught Dudley's hands. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember, and the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
+Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought is gave main charater energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
-"When your parents wrecked their whip and died," she had said. "And don't ask questions."
+"When your parents wrecked their whip and unalived." she had said. "And don't be askin questions."
 
-Don't ask questions - that was the number one rule for living a basic life with the Dursleys.
+Don't ask questions - that was the numero uno rule for living a basic life with the Dursleys.
 
-Uncle Vernon entered the kitchen as Harry was flippin' over the bacon.
+Uncle Vernon vented in the kitchen as Harry was flippin' the bacon.
 
 "Comb your hair!" he barked, by way of a morning greeting.
 
-Bout once a week, Uncle Vernon looked over the top of his tablet and shouted that Harry needed a new do. Harry must have had more haircuts than the rest of the bois in his class together, but it made no difference, his hair simply grew that way - like an overfertilized chia pet. 
+Bout once a week, Uncle Vernon peeped over the top of his tablet and shouted that Harry needed a new do. Harry's prolly had more haircuts than the rest of the bois in his class together, but his hair didn't give a fuck and simply grew that way -like an overfertilized chia pet.
 
-Harry was frying eggs by the time Dudley arrived in the kitchen with his mom. Dudley was a mini-me of Uncle Vernon. He had a chonky pink face, hardly any neck, smol watery blue eyes, and lotsa blonde hair that lay flat upon his thicc head. Aunt Petunia often said that Dudley looked like a baby angel - Harry often said that he looked like a rejected plus size cabbage patch doll. 
+Harry was frying eggs by the time Dudley vented in the kitchen with his birther. Dudley was a mini-me of Uncle Vernon. He had a chonky pink face, hardly any neck, smol watery blue eyes, and lotsa blonde hair that lay flat upon his fugly head. Aunt Petunia often said that Dudley looked like a bb angel - Harry often said that he looked like a rejected plus size cabbage patch doll. 
 
-Harry put the feast of eggs and bacon on the table, which was difficult because there wasn't much room. Dudley, meanwhile, was counting his presents. His entitled face fell. 
+Harry put the feast of eggs and bacon on the table, which was supa hexagon hard bc there wasn't much room. Dudley, meanwhile, was countin' is presents. His privileged face fell.
 
 "Thirty-six," he mathed, looking up at his mother and father. "That's two less than last year."
 
-"Bae, you haven't counted Auntie Marge's present, see, it's here under this big one from Mommy and Daddy."
+"Bae, you haven't counted Auntie Marge's present, cop a look, it's here under this big one from Mummy and Daddy."
 
-"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who could see a huge Dudley tantrum coming on, began chugging down his bacon as fast as possible in case Dudley turned the table over. 
+"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who could sus out a huge Dudley bitchfit coming on, began chugging down his bacon as fast as possible in case Dudley yeeted the table over. 
 
-Aunt Petunia saw the red flags, too, because she said quickly, "And we'll buy you another two presents while we're out today. How's that, qt? Two more gifts. Is that all right?"
+Aunt Petunia saw the red flags, too, because she said quickly, "And we'll cop you another two presents while we're vibin' today. How's that, qt? Two more gifts. Is that aiight?"
 
 Dudley strained as the wheels turned in his head, ever so slowly. "So I'll have thirty... thirty..."
 
-"Thirty-nine, sweetie," said Aunt Petunia. 
+"Thirty-nine, homeslice," said Aunt Petunia. 
 
-"Oh." Dudley flopped down in the chair and grabbed the nearest present. "All right then."
+"Oh." Dudley flopped down in the chair and grabbed the nearest present. "Aight then."
 
 Uncle Vernon chuckled. 
 
-"Lil dude just wants to get his money's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
+"Lil dude just wants to get his dough's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
 
 At that moment the telephone rang and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a blueray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
 
-"Bad news, Vernon," she said. "Mrs. Figg's broken her leg. She can't take him." She jerked her head in Harry's direction. 
+"Shitty news, Vernon," she said. "Mrs. Figg's clumsy ass broken her leg. She can't take him." She jerked her head in Harry's direction. 
 
-Dudley's mouth fell open in horror, but Harry's heart gave a leap. Every year on Dudley's birthday, his parents took him and a friend out for the day, to totally awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house smelled of cabbage and Mrs. Figg made him look at pics of all the cats she'd ever owned. 
+Dudley's mouth fell open in horror, but Harry's heart did a ziggy. Every year on Dudley's bday, his parentals took him and a homeboy out for the day, to tot awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house had a buttbreath smell of cabbage and Ms. F made him look at pics of all the kitties she'd ever hosted.
 
-"Now what?" said Aunt Petunia, looking furiously at Harry as though he had schemed the whole thing. Harry knew he ought to care that Mrs. Figg's leg was broke, but it wasn't easy when he reminded himself that it would be a whole year before he had to look at Tibbles, Snowy, Mr. Paws, and Tufty again. 
+"Now what?" said Aunt Petunia, looking furiously at Harry as though he had schemed the whole thing. Harry knew he ought to care that Mrs. F's leg was broke, but it wasn't easy when he reminded himself that it would be a whole year before he had to look at Tibbles, Snowy, Mr. Paws, and Tufty again. 
 
 "We could text Marge," Uncle Vernon suggested.
 
@@ -77,7 +77,7 @@ Dudley's mouth fell open in horror, but Harry's heart gave a leap. Every year on
 
 The Dursley's often spoke about Harry like this, as though he wasn't there - or rather, as though he was something cringe that couldn't understand them, like a slug.
 
-"What about what's-her-name, your friendo - Yvonne?"
+"What about what's-her-name, your homie - Yvonne?"
 
 "On vacay in Majorca," snapped Aunt Petunia. 
 
