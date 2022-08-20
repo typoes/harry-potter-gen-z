@@ -205,6 +205,6 @@ Wiping his streaming eyes on his jacket sleeve, Hagrid swung himself onto the mo
 
 Dumbledore walked off into the night. On the corner he stopped and took out the silver Put-Outer. He clicked it once, and twelve balls of light sped back to their street lamps so that Privet Drive glowed suddenly orange and he could make out a tabby cat slinking around the corner at the other end of the street. He could just see the bundle of blankets on the step of number four.
 
-"Gl, Harry," he murmured. He spun on his heel, swished his cloak, and vanished into the night.
+"GL, Harry," he murmured. He spun on his heel, swished his cloak, and vanished into the night.
 
 A breeze ruffled the neat hedges of Privet Drive, super basic even under the stars, the very last place you would expect astonishing things to happen. Harry Potter cuddled up inside his blankies, sleepin soundly. One smol hand closed on the letter beside him and he slept on, not knowing he was special, not knowing he was famous, not knowing he would be woken in a few hours' time by Mrs. Dursley's scream as she opened the front door to put out the milk bottles, nor that he would spend the next few weeks being prodded and pinched by his cousin Dudley... He couldn't know that at this very moment, peeps meeting in secret all over the county gettin lit and saying in hushed voices: "To Harry Potter - the boy who wasn't unalived."
