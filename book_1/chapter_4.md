@@ -5,7 +5,7 @@ BOOM. They knocked again. Dudley jerked awake.
 
 "Where's the cannon?" he said stupidly, in a smooth-brained fashion.
 
-There was a crash behind them and Uncle Vernon came skidding into the room. He washolding a rifle in his hands - now they knew what had been in the long, thin package (that's what she said) he had brought with them.
+There was a crash behind them and Uncle Vernon came skidding into the room. He was holding a rifle in his hands - now they knew what had been in the long, thin package (that's what she said) he had brought with them.
 
 "Who's there?" he shouted. "I warn you -- I'm armed and I'm majorly triggered!"
 
@@ -13,7 +13,7 @@ There was a pause. Then --
 
 SMASH!
 
-The door was hit with such force that it swung clean off its hinges and with a deafening crash landed flat on the floor.
+The door was yeeted clean off its hinges and with a deafening crash landed flat on the floor.
 
 A giant of a man was standing in the doorway. His face was almost completely hidden by a hot mess of hair and a wild, tangled beard, but you could make out his eyes, glinting like black beetles under all the hair.
 
@@ -33,17 +33,17 @@ Harry looked up into the fierce, wild, shadowy face and saw that the beetle eyes
 
 Uncle Vernon made a funny rasping noise.
 
-"I demand that you leave at once, sir!" he said. "You are breaking and entering!"
+"I demand that you leave at once, sir!" he said, clearly triggered. "You are breaking and entering!"
 
 "Ah, shut up, Dursley, yeh great prune," said the giant; he reached over the back of the sofa, jerked the gun out of Uncle Vernon's hands, bent it into a knot as easily as if it had been made of rubber, and threw it into a corner of the room.
 
-Uncle Vernon made another funny noise, like a mouse being trodden on.
+Uncle Vernon made another funny noise, like a mouse being trodden on. No more Karen-ing for him.
 
-"Anyway -- Harry," said the giant, turning his back on the Dursleys, "a very happy birthday to yeh. Got summat fer yeh here -- I mighta sat on it at some point, but it'll taste all right."
+"Anyway -- Harry," said the giant, turning his back on the Dursleys in hot girl fashion, "a very happy birthday to yeh. Got summat fer yeh here -- I mighta sat on it at some point, but it'll taste all right."
 
-From an inside pocket of his black overcoat he pulled a slightly squashed box. Harry opened it with trembling fingers. Inside was a large, sticky chocolate cake with Happy Birthday Harry written on it in green icing.
+From an inside pocket of his black overcoat he pulled a slightly squashed box. Harry opened it with scared fingers. Inside was a large, sticky chocolate cake with 'Happy Birthday Harry' written on it in green icing.
 
-Harry looked up at the giant. He meant to say thank you, but the words got lost on the way to his mouth, and what he said instead was, "Who are you?"
+Harry looked up at the giant. He meant to say thank you, but a smooth brain moment had him saying, "Who are you?"
 
 The giant chuckled.
 
@@ -57,25 +57,25 @@ The giant sat back down on the sofa, which sagged under his weight, and began ta
 
 The giant chuckled darkly.
 
-"Yer great puddin' of a son don' need fattenin' anymore, Dursley, don' worry."
+"Yer great puddin' of a son don' need fattenin' anymore, Dursley, chill."
 
 He passed the sausages to Harry, who was so hungry he had never tasted anything so wonderful, but he still couldn't take his eyes off the giant. Finally, as nobody seemed about to explain anything, he said, "I'm sorry, but I still don't really know who you are." The giant took a gulp of tea and wiped his mouth with the back of his hand.
 
-"Call me Hagrid," he said, "everyone does. An' like I told yeh, I'm Keeper of Keys at Hogwarts -- yeh'll know all about Hogwarts, o' course.
+"Call me Hagrid," he said, "everyone does. An' like I told yeh, I'm Keeper of Keys at Hogwarts -- yeh'll know all about Hogwarts, o' course."
 
 "Er -- no," said Harry.
 
 Hagrid looked shocked.
 
-"Sorry," Harry said quickly.
+"My b" Harry said quickly.
 
-"Sorry ?" barked Hagrid, turning to stare at the Dursleys, who shrank back into the shadows. "It's them as should be sorry! I knew yeh weren't gettin' yer letters but I never thought yeh wouldn't even know abou' Hogwarts, fer cryin' out loud! Did yeh never wonder where yer parents learned it all?"
+"Your b?" barked Hagrid, turning to stare at the Dursleys, who shrank back into the shadows. "It's them as should be sorry! I knew yeh weren't gettin' yer letters but I never thought yeh wouldn't even know abou' Hogwarts, fer cryin' out loud! Did yeh never wonder where yer parents learned their shit?"
 
-"All what?" asked Harry.
+"What shit?" asked Harry.
 
-"ALL WHAT?" Hagrid thundered. "Now wait jus' one second!"
+"WHAT SHIT?" Hagrid thundered. "Now hold the phone!"
 
-He had leapt to his feet. In his anger he seemed to fill the whole hut. The Dursleys were cowering against the wall.
+He had leapt to his feet. Boi was amgery, no cap. The Dursleys were triggered against the wall.
 
 "Do you mean ter tell me," he growled at the Dursleys, "that this boy -- this boy! -- knows nothin' abou' -- about ANYTHING?"
 
