@@ -105,7 +105,7 @@ Half an hour later, Harry, who couldn't believe his luck, was sitting in the bac
 
 "I'm warning you," he had said, putting his large purple face all up in Harry's grill. "I'm warning you now, boi - any sus bidness, anything at all - and you'll be in that cupboard from now until Christmas."
 
-"I'm not going to do anything bro," said Harry. "fo real..."
+"I'm not going to do anything bro," said Harry. "Legit..."
 
 But Uncle Vernon wasn't 'bout to be bamboozled and didn't believe him. No one ever did. 
 
