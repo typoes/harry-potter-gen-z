@@ -17,7 +17,7 @@ That evening, Dudley paraded around the living room for the family in his brand-
 
 As he looked at Dudley in his new knickerbockers, Uncle Vernon said gruffly that it was the sickest, most swag moment of his life. Aunt Petunia burst into tears and said she couldn’t believe it was her Ickle Dudleykins, he looked so hot, smexy and grown-up. Harry didn’t trust himself to speak. He thought two of his ribs might already have cracked from trying not to laugh. There was a horrible smell in the kitchen the next morning when Harry went in for breakfast. It seemed to be coming from a large metal tub in the sink. He went to have a look. The tub was full of what looked like dirty rags swimming in gray, sussy water.
 
-“OWO whas dis?” he asked Aunt Petunia. Her lips tightened as they always did if he dared to ask a question.
+“OwO whas dis?” he asked Aunt Petunia. Her lips tightened as they always did if he dared to ask a question.
 
 “Your new school uniform,” she said.
 
