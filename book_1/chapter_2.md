@@ -61,80 +61,96 @@ Dudley strained as the wheels turned in his head, ever so slowly. "So I'll have 
 
 Uncle Vernon chuckled. 
 
-"Lil dude just wants to get his dough's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
+"Lol lil dude just wants to get his dough's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
 
 At that moment the telephone rang and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a blueray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
 
 "Shitty news, Vernon," she said. "Mrs. Figg's clumsy ass broken her leg. She can't take him." She jerked her head in Harry's direction. 
 
-Dudley's mouth fell open in horror, but Harry's heart did a ziggy. Every year on Dudley's bday, his parentals took him and a homeboy out for the day, to tot awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house had a buttbreath smell of cabbage and Ms. F made him look at pics of all the kitties she'd ever hosted.
+Dudley's mouth fell open in horror, but Harry's heart did a ziggy. Every year on Dudley's bday, his parentals took him and a homeboy out for the day, to tots awesome adventure parks, bougie restaurants, or the dope movies. Every year, Harry was left behind with Mrs. F, a crazy old bat who lived two streets away. Harry hated it there. The whole house had a buttbreath smell of cabbage and Ms. F made him look at pics of all the kitties she'd ever hosted.
 
-"Now what?" said Aunt Petunia, looking furiously at Harry as though he had schemed the whole thing. Harry knew he ought to care that Mrs. F's leg was broke, but it wasn't easy when he reminded himself that it would be a whole year before he had to look at Tibbles, Snowy, Mr. Paws, and Tufty again. 
+"Now what?" said Aunt Petunia, looking furiously at Harry as though he had schemed the whole thing. Harry knew he ought to give a shit that Mrs. F's leg was bruk, but it wasn't easy when he reminded himself that it would be a whole ass year before he had to look at Tibbles, Snowy, Mr. Paws, and Tufty again. 
 
-"We could text Marge," Uncle Vernon suggested.
+"We could hit up Marge," Uncle Vernon suggested.
 
 "You're kiddin', right? She hates the boi."
 
-The Dursley's often spoke about Harry like this, as though he wasn't there - or rather, as though he was something cringe that couldn't understand them, like a slug.
+The Dursley's often spoke 'bout Harry like this, as though he wasn't there - or rather, as though he was something cringe that couldn't understand them, like a slug.
 
-"What about what's-her-name, your homie - Yvonne?"
+"What about what's-her-face, your homie - Yvonne?"
 
 "On vacay in Majorca," snapped Aunt Petunia. 
 
-"You could just leave me here," Harry put in hopefully (he'd be able to watch what he wanted on Netflix for a change and maybe even troll the forums on Dudley's chromebook). 
+"You could just dip and leave me here," Harry put in hopefully (he'd be able to watch what he wanted on Netflix for a change and maybe even troll the forums on Dudley's chromebook). 
 
-Aunt Petunia looked as though she'd just swallowed a lemon. 
+Aunt Petunia looked as though she'd just swallowed a whole bag of sour skittles.
 
 "And come back and find the house in ruins?" she bitched.
 
-"I won't blow up the house," said Harry, but they were boycotting him. 
+"I won't fuck up the house," said Harry, but they were boycotting him. 
 
-"I suppose we could take him to the zoo," said Aunt Petunia slowly. "... and leave him in the car..."
+"Ig we could take him to the zoo," said Aunt Petunia slowly. "... and lock him in the car..."
 
 "That's my new whip, he ain't gonna chill in it alone..."
 
-Dudley began to wail. Fact, he wasn't really crying - it had been years since he had felt real emotions - but he knew if he screwed up his face and made unhappy noises, his mother would give him anything he wanted. 
+Dudley began to wail. Fact, he wasn't really crying - it had been literally forever since he had felt in-real-life emotions - but he knew if he screwed up his face and made unhappy noises, his birth giver would give him anything he wanted. 
 
-"Diny Duddydums, don't cry. Mummy won't let him spoil your special day!" she cried, flinging her arms around him. 
+"Diny Duddydums, don't cry. Mummy won't let him unbomb your bomb diggity day!" she cried, flinging her arms around him. 
 
-"I ... don't... want... him... t-t-to come!" Dudley gasped for air between huge, pretend sobs. "He always sp-spoils everything!" He shot Harry a nasty grin through the gap in his mother's arms. 
+"I ... don't... want... him... t-t-to come!" Dudley gasped for air between huge, pretend sobs. "He always sp-spoils everything!" He shot Harry a narsty grin through the gap in his mother's arms. 
 
-Just then, the doorbell rang - "Oh, sweet baby Jesus, they're here!" said Aunt Petunia frantically - and a moment later, Dudley's bff, Piers Polkiss, walked in with his mom. Piers was a scrawny boi with a face like a rat. He was usually the one who held people's arms behind their backs while Dudley threw hands. Dudley stopped pretending to cry at once.
+Just then, the ding-dong rang - "Oh, for fucksake, they're here!" said Aunt Petunia frantically - and a sec later, Dudley's bff, Piers Polkiss, walked in with his mom. Piers was a scrawny boi with a face like a rat. He was usually the one who held people's arms behind their backs while Dudley cashed them outside. Dudley stopped bullshitting crying at once.
 
-Half an hour later, Harry, who couldn't believe his luck, was sitting in the back of the Dursley's car with Piers and Dudley, on the way to the zoo for the first time in his life. His aunt and uncle hadn't been able to think of anything else to do with him, but before they'd left, Uncle Vernon had pulled Harry aside. 
+Half an hour later, Harry, who couldn't believe his luck, was sitting in the back of the Dursley's car with Piers n' Dudley, on the way to the zoo for the first time in his life. His aunt and uncle hadn't been able to big brain anything else to do with him, but before they'd left, Uncle Vernon had snatched Harry aside. 
 
-"I'm warning you," he had said, putting his large purple face all up in Harry's grill. "I'm warning you now, boi - any funny business, anything at all - and you'll be in that cupboard from now until Christmas."
+"I'm warning you," he had said, putting his large purple face all up in Harry's grill. "I'm warning you now, boi - any sus bidness, anything at all - and you'll be in that cupboard from now until Christmas."
 
-"I'm not going to do anything bro," said Harry. "Legit..."
+"I'm not going to do anything bro," said Harry. "fo real..."
 
-But Uncle Vernon didn't believe him. No one ever did. 
+But Uncle Vernon wasn't 'bout to be bamboozled and didn't believe him. No one ever did. 
 
-The problem was, weird shit often happened around Harry and it was no good telling the Dursleys he didn't do things. 
+The prob was, weird shit often happened around Harry and it was no good telling the Dursleys he deadass didn't do things. 
 
-Once, Aunt Petunia, tired of Harry coming back from Great Clips looking as though he hadn't been there at all, had taken a pair of kitchen scissors and cut his hair so short he was almost bald except for his bangs, which she left "to hide that cringe disfigurement." Dudley had laughed himself silly at Harry, who spent a sleepless night imagining school the next day, where he was already teased for his lack of style. Next morning, however, he had gotten up to find his hair exactly as it had been before Aunt Petunia had sheared it off. He had been given a week in his cupboard for this, even though he had tried to explain that he couldn't explain how it had grown back so quickly. Not cool.
+Once, Aunt Petunia, tired af of Harry coming back from Great Clips looking as though he hadn't been there at all, had taken a pair of kitchen scissors and cut his hair so short he was almost a full cueball except for his bangs, which she left "to hide that cringe disfigurement." Dudley had lamo at Harry, who spent a sleepless night imagining school the next day, where he was already razzed for his lack of style. Next morning, albeit, he had gotten up to find his do exactly as it had been before Aunt Petunia had sheared it off. He had been given a week in his cupboard for this, even though he had tried to explain that he didn't fuckin know how it had grown back so quickly. Not cool.
 
-Another time, Aunt Petunia had been trying to force him into a revolting old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it might have fit a barbie doll, but certainly wouldn't fit Harry. Aunt Petunia decided it must have shrunk in the wash and, to his great relief, Harry wasn't punished. 
+Another time, Aunt Petunia had been tryna force him into a heinous ass old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it would polly fit a barbie doll, but certainly wouldn't be Harry's drip. Aunt Petunia decided it must have shrunk in the wash and, to his swell relief, Harry didn't have to take the heat. 
 
-On the other hand, he'd gotten into terrible trouble for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's surprise as anyone else's, there he was sitting on the chimney. The Dursley's received a very angry letter from Harry's headmistress telling them Harry had been climbing school buildings. But all he'd tried to do (as he shouted at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have caught him mid-jump. 
+On the other hand, he'd gotten into deep shit for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's gee wizzed as anyone else's, there he was vibin' on the chimney. The Dursley's received a very salty letter from Harry's headmistress straight up snitching to them that Harry had been parkoring school buildings. But all he'd tried to do (as he popped off at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have snatched him mid-jump. 
 
-But today, nothing was going to go wrong. It was even worth being with Dudley and Piers to be spending the day somewhere that wasn't school, his cupboard, or Mrs. Figg's cabbage smelling living room. 
+But today, nada was going to go to shit. It was even worth being with Dudley and Piers to be spending the day somewhere that wasn't school, his cupboard, or Mrs. Figg's cabbage smelling living room. 
 
-While he drove, Uncle Vernon complained to Aunt Petunia. He liked to complain about things: people at work, Harry, the council, the bank, and Harry were just a few of his favorite subjects. This morning it was motorcycles. 
+While he vrom vrommed, Uncle Vernon bitched to Aunt Petunia. He liked to bitch about things: people at work, Harry, the council, the bank, and Harry were just a few of his fav subjects. This morning it was motorcycles. 
 
-"...roaring along like maniacs, the young gangstas,: he said as a motorcycle overtook them.
+"...roaring along like crackheads, the young gangstas," he said as a motorcycle overtook them.
 
-"I had a dream about a motorcyle," said Harry, remembering it suddenly. "It was flying."
+"I had a dream 'bout a motorcyle," said Harry, remembering it suddenly. "It was flying."
 
-Uncle Vernon nearly crashed into the car in front. He turned right around in his seat and yelled at Harry, his face like a giant beet with a mustache: "MOTORCYCLES DON'T FLY DUDE"
+Uncle Vernon nearly side swipped into the car in front. He whipped right around in his seat and yelled at Harry, his face like a giant beet with a mustache: "MOTORCYCLES DON'T FLY DUDE"
 
-Dudley and Piers were laughing their asses of. 
+Dudley and Piers were laughing their asses off. 
 
-"I know they don't," said Harry. "It was only a dream."
+"Lol I know they don't," said Harry. "It was only a dream."
 
-Big yikes, he wished he hadn't said anything. If there was one thing the Dursleys hated even more than him asking questions, it was his talking about anything acting abnormally, no matter if it was a dream or cartoon - they seemed to think he might get dangerous ideas. 
+Big yikes, he wished he had stfu. If there was one thing the Dursleys hated even more than him asking questions, it was his hollin' about anything acting sus, no matter if it was a dream or cartoon - they seemed to think he might get sus ideas. 
 
-It was a very sunny Saturday and the zoo was crowded with fams. The Dursleys bought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could hurry him away, they bought him an off-brand lemon ice pop. It wasn't bad either, Harry thought, licking it as they watched a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
+It was a v sunny Saturday and the zoo was asses and elbows with people. The Dursleys brought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could skirt him away, they bought him an off-brand lemon ice pop. It wasn't shitty either, Harry thought, licking it as they peeped a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
 
-Harry had the best morning he'd had in a long time. He was careful to walk a little way apart from the Dursleys so that he wouldn't catch hands from Dudley and Piers, who were starting to get bored of the animals by lunchtime. They ate in a zoo restaurant, and when Dudley had a tantrum because his kickerbocker glory didn't have enough ice cream on top, Uncle Vernon bought him another one and Harry was allowed to finish the first. 
+Harry had had a dank morning something he hadn't had in a long time. He was careful to walk a lil way apart from the Dursleys so that he wouldn't get clocked by Dudley and Piers, who were starting to get bored of the animals by lunchtime. They ate in a zoo restaurant, and when Dudley had a bitchfit bc his kickerbocker glory didn't have enough ice cream on top, Uncle Vernon snatched him another one and Harry was allowed to finish the first. 
 
-Harry felt, afterward, that he should have known it was all too good to last.
+Harry felt, afterward, that he should have known it was all too bussin to last.
+
+After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, cobras and yolked, man-crushing pythons. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could''ve wrapped its bod twice around Uncle Vernon's car and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
+
+Dudley standed with his nose pressed against the glass, deekin' at the glistening brown coils.
+
+"Make it move," he boobed at his father. Uncle Vernon tapped on the glass, but the nope rope didn't give a fuck.
+
+"Do it again," Dudley ordered (cause apparently he was too stoopy to do it himself). Uncle Vernon rapped the glass smartly with his chonky knuckles, but the snek was all good in the hood and slept on.
+
+"This is boring," Dudley moaned. He shuffled away.
+
+Harry skirted in front of the tank and looked intently at the nope rope. His wig would not be snatched if it had died of boredity itself--no besties except dingy people drumming their oily fingers on the glass trying to spam it all day long. It was worser than having a dumbass cupboard as a bedroom, where the only visitor was Aunt Petunia hammering on the door to wake your ass up; at least he got to peep the rest of the pad.
+
+The snek suddenly opened its beady eyes. Slowly, v slowly, it uppied its head until its eyes were on a level wit Harry's.
+
+It winked.
