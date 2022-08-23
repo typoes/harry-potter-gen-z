@@ -1,14 +1,11 @@
 # Chapter One
-## THE WORST BIRTHDAY
+## The Sad Birthday Boi
 
 <img src="https://static.wikia.nocookie.net/harrypotterbooks/images/b/bb/TheBirthday.jpeg" width="300" height="230">
 
-Not for the first time, an argument had broken out over breakfast at number four, Privet Drive.
-Mr. Vernon Dursley had been woken in the early hours of the morning by a loud yapping from
-his nephew Harry's room.
+Them hoes at 4 Privet Drive was wildin again. Pappa Dursley's beauty-sleep (cuz those neck rolls ain't fluffin themselves) was interrupted at butt-o'-clock by some racket from Harry's lair under the stairs. 
 
-"Third time this week!" he roared across the table. "If you can't control that owl, it'll have
-to go!"
+"Third time this week!" he roared across the table, his lil mustache flapping in the wind. "If you can't control that owl, it has to go!"
 
 Harry tried, yet again, to explain.
 
@@ -120,7 +117,7 @@ very important day."
 
 Harry looked up, hardly daring to believe it.
 
-"This could well be the day I make the biggest deal of my career," said Uncle Vernon.
+"This could could be the day I'm gonna make some BANK," V-boi continued.
 
 Harry went back to his toast. *Of course*, he thought bitterly, *Uncle Vernon was talking about his stupid
 dinner party*. He'd been talking of nothing else for two weeks. Some rich builder and his wife were coming
