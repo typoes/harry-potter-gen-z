@@ -8,9 +8,13 @@
   
 #### 2 - [Harry Potter and the Chamber of Ratios](https://github.com/typoes/harry-potter-gen-z/tree/main/book_2)
   1. [*The Worst Birthday*](https://typoes.github.io/harry-potter-gen-z/book_2/chapter_1.html)
+
+
 #### 3 - Harry Potter and the Locked-up Dude
 #### 4 - [Harry Potter and the Chug Jug of Fiya](https://github.com/typoes/harry-potter-gen-z/tree/main/book_4)
   17. [*The Four Champions*](https://typoes.github.io/harry-potter-gen-z/book_4/chapter_17.html)
+
+
 #### 5 - *Harry Potter and the Order of the Phoenix*
 #### 6 - *Harry Potter and the Half-Blood Prince*
 #### 7 - *Harry Potter and the Deathly Hallows*
