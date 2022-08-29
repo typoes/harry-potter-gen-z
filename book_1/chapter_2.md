@@ -25,7 +25,7 @@ Harry groaned. So done.
 
 "Nothing, nothing..."
 
-Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
+Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after yoinking  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
 
 Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was fast af.
 
@@ -113,7 +113,7 @@ The prob was, weird shit often happened around Harry and it was no good telling 
 
 Once, Aunt Petunia, tired af of Harry coming back from Great Clips looking as though he hadn't been there at all, had taken a pair of kitchen scissors and cut his hair so short he was almost a full cueball except for his bangs, which she left "to hide that cringe disfigurement." Dudley had lamo at Harry, who spent a sleepless night imagining school the next day, where he was already razzed for his lack of style. Next morning, albeit, he had gotten up to find his do exactly as it had been before Aunt Petunia had sheared it off. He had been given a week in his cupboard for this, even though he had tried to explain that he didn't fuckin know how it had grown back so quickly. Not cool.
 
-Another time, Aunt Petunia had been tryna force him into a heinous ass old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it would polly fit a barbie doll, but certainly wouldn't be Harry's drip. Aunt Petunia decided it must have shrunk in the wash and, to his swell relief, Harry didn't have to take the heat. 
+Another time, Aunt Petunia had been tryna force him into a heinous ass old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it would prolly fit a barbie doll, but certainly wouldn't be Harry's drip. Aunt Petunia decided it must have shrunk in the wash and, to his swell relief, Harry didn't have to take the heat. 
 
 On the other hand, he'd gotten into deep shit for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's gee wizzed as anyone else's, there he was vibin' on the chimney. The Dursley's received a very salty letter from Harry's headmistress straight up snitching to them that Harry had been parkoring school buildings. But all he'd tried to do (as he popped off at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have snatched him mid-jump. 
 
@@ -133,13 +133,13 @@ Dudley and Piers were laughing their asses off.
 
 Big yikes, he wished he had stfu. If there was one thing the Dursleys hated even more than him asking questions, it was his hollin' about anything acting sus, no matter if it was a dream or cartoon - they seemed to think he might get sus ideas. 
 
-It was a v sunny Saturday and the zoo was asses and elbows with people. The Dursleys brought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could skirt him away, they bought him an off-brand lemon ice pop. It wasn't shitty either, Harry thought, licking it as they peeped a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
+It was a v sunny Saturday and the zoo was asses and elbows with people. The Dursleys brought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could skirt him away, they bought him an off-brand lemon ice pop. It wasn't shitty either, Harry thought, licking it as they peeped a gorilla scratching its head who looked totes like Dudley, except that it wasn't blonde. 
 
 Harry had had a dank morning something he hadn't had in a long time. He was careful to walk a lil way apart from the Dursleys so that he wouldn't get clocked by Dudley and Piers, who were starting to get bored of the animals by lunchtime. They ate in a zoo restaurant, and when Dudley had a bitchfit bc his kickerbocker glory didn't have enough ice cream on top, Uncle Vernon snatched him another one and Harry was allowed to finish the first. 
 
 Harry felt, afterward, that he should have known it was all too bussin to last.
 
-After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, cobras and yolked, man-crushing pythons. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could''ve wrapped its bod twice around Uncle Vernon's car and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
+After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, cobras and yolked, man-crushing pythons. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could've wrapped its bod twice around Uncle Vernon's whip and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
 
 Dudley standed with his nose pressed against the glass, deekin' at the glistening brown coils.
 
@@ -154,3 +154,47 @@ Harry skirted in front of the tank and looked intently at the nope rope. His wig
 The snek suddenly opened its beady eyes. Slowly, v slowly, it uppied its head until its eyes were on a level wit Harry's.
 
 It winked.
+
+Harry stared. Then he peeped quickly around to see if anyone noticed him being sus. Fortunately, nope. He looked back at the snek and winked, too.
+
+The danger noodle jerked his head towards Uncle V and Dudley, then upped his eyes to the ceiling. It gave Harry a look that said no cap: "I get that totes non stop".
+
+"Yeah, rel", Harry murmurred through the glass, though he wasn't sure the snek could hear him. "It sure is real pain in the ass".
+
+The danger noodle nodded vigorously.
+
+"Where d'you come from, anyway?" Harry asked.
+
+The snake upped his tail and bonked a little sign next to the glass. Harry eyed at it.
+
+_Boa Constrictor, Brazil_
+
+"Was it nice there?"
+
+The boa thingy bonked the sign again and Harry read on: _This danger noodle was bred in the zoo_. "Yeah, right - so you've never been to Brazil?"
+
+As the snek shook its head, a devilish screech behind Harry yeeted both of them. "DUDLEY! MR D! COME AND LOOK AT THIS NOPE ROPE! SEE WHAT IT'S DOING, NO CAP!"
+
+Dudley youinked himself towards them fast AF
+
+"Fuck away, bitch", he said, yeeting Harry out of his way. Caught by surprise, Harry fell hard on the concrete floor. What came next happened fast AF, so no one knew WTF - one sec, Piers and Dudley were leaning right up close to the glass, the next, they were yeeted in with screeches of horror.
+
+Harry sat up and gasped; the glass front of the danger noodle's tank cancelled itself. The snek was uncoiling itself rapidly, slithering out on to the floor - people throughout the nopey nope section screamed and started running to the exits.
+
+As the snek slid swiftly past him, Harry could say, he no cap heard a low, hissing voice say "Brazil, here I come ... thx, bro".
+
+The keeper of the nopey nope section was in shock.
+
+"But the glass", he kept saying, "did it just cancel itself"?
+
+The zoo director himself made Aund Petunia a cuppa strong sweet tea while he apologized over and over again. Piers and Dudley could only gibber. Harry could say, no cap, the snek hadn't done anything except snap playfully at their heels as it passed, but by time thay were all back in Uncle V's whip, Dudley was telling them how it had prolly bitten of his leg, while piers was saying, no cap, it had tried to squeeze him to unalivement. But worst of all, for Harry at least, was Piers calming down enough to say "Harry was having a chat to it, Harry, no cap?"
+
+Uncle V waited until Piers was safely out of the house before yeeting himself at Harry. He was so angry, he could hardly speak. He managed to say "Go - cupboard - stay - no meals", before he collapsed into a chair and Aunt P had to run and get him a large brandy.
+
+Harry lay in his dark cupboard much later, wishing he had a watch. He didn't know what time it was and he couldn't be sure, the Dursleys were catching z's already. Until they were, he couldn't risk sneaking to the kitchen for some food.
+
+He'd lived with the Dursleys almost ten years, like an eternity, as long as he could remember, ever since he'd been a tiny boi and his parents were unalived, when they wrecked their whip. He couldn't remember being in the whip with his parents, whey they were unalived. Sometimes, when he strained his memory during eternities in his cupboard, he came up with a sus vision: a blinding flash of green light and a burning pain on his forehead. This, he supposed, was the crash, though this green light looked sus. He coulnd't remember his parents at all. His aunt and uncle never spoke about them, and of course he was forbidden to ask questions. There were no photos of them in the house.
+
+When he had been smoler, Harry had dreamed and dreamed of someone yoinking his out of the house, but it had never happened; the Dursleys were his only fam. Yet sometimes he thought (or prolly hoped) that strangers in the streets seemed to know him. Very sus people they were, too. A smal guy in a violet top hat had bowed to him once while out shopping with aunt P and Dudley. After asking Harry furiously if he knew the guy, Aunt P had yoinked then out of the shop without buying anything. A wild-looking old woman dressed all in green had waved merrily at him once on a bus. A bald man in a long AF purple coat had actually shaken his hand in the street the other day and then walked away without a word. The sussest thing about all these people was the way they seemed to be cancelled the second Harry tried to eye more closely.
+
+At sql, Harry had no one. Everybody knew that Dudley's gang hated that sus HP in his big ass clothes and broken glasses, and nobody liked ti disagree with Dudley's gang.
