@@ -12,7 +12,7 @@ Harry tried, yet again, to explain.
 "She's *bored*," he said. "Sitting in this house is unbased. If you would stop gatekeeping: I could let her out at
 night-"
 
-"Do I look stupid?" snarled Uncle Vernon, a bit of fried egg dangling from his floofy mustache.
+"Do I look stupid?" snarled Uncle Vernon, a bit of fried egg dangling from his floofy mustache, like dingleberries on ass hair.
 "I know what'll happen if that owl's let out."
 
 He exchanged dark looks with his wife, Petunia.
@@ -29,7 +29,7 @@ food...."
 "Nonsense, Petunia, back in my day I never went hungry when *I* was at Smeltings," said Uncle Vernon heartily.
 "Dudley gets enough, don't you, son???"
 
-Dudley, who was so large his bottom drooped over either side of the kitchen chair, grinned and
+Dudley, who was so large his ass drooped over either side of the kitchen chair, grinned and
 turned to Harry.
 
 "Pass the frying pan."
@@ -63,7 +63,7 @@ Uncle Vernon sat back down, breathing like a winded rhinoceros and watching Harr
 the corners of his small, sharp eyes.
 
 Ever since Harry had come home for the summer holidays, Uncle Vernon had been treating him like
-a bomb that might go off at any moment, because Harry Potter *wasn't* a basic boy. As a matter of
+an impostor that might go off doing sus things at any moment, because Harry Potter *wasn't* a basic boy. As a matter of
 fact, he was as quirky as it is possible to be.
 
 Harry Potter was a wizard -- a wizard fresh from his first year at Hogwarts School of Witchcraft and
@@ -77,7 +77,7 @@ dormitory, visiting the game-keeper, Hagrid, in his cabin next to the Forbidden 
 and, especially, Quidditch, the most popular sport in the Wizarding world (six tall goalposts, four
 flying balls, and fourteen players on broomsticks).
 
-All Harry's spellbooks, his wand, robes, cauldron, and top-of-the-line Nimbus Two Thousand broomstick
+All Harry's spellbooks, his wand, robes, cauldron, and top-of-the-line Nimbus 2K broomstick
 had been locked in a cupboard under the stairs by Uncle Vernon the instant Harry had come home. What
 did the Dursleys care if Harry lost his place on the House Quidditch team because he hadn't practiced
 all summer? The Dursleys were what wizards called **Muggles** (not a drop of magical blood in their veins),
@@ -273,14 +273,14 @@ of cheese on the kitchen table. She was already wearing a salmon-pin cocktail dr
 Harry washed his hands and bolted down his pitiful supper. The moment he had finished, Aunt Petunia whisked away
 his plate.
 
-"Upstairs! Hurry!"
+"Upstairs! Hurry your ass up!"
 
 As he passed the door to the living room, Harry caught a glimpse of Uncle Vernon and Dudley in bow ties and dinner
-jackets. he had only just reached the upstairs landing when the doorbell rang and Uncle Vernon's furious face
+jackets. he had only just reached the upstairs landing when the doorbell rang and Uncle Vernon's pissed face
 appeared at the foot of the stairs.
 
-"Remember, boy -- one sound-"
+"Remember, boy -- one fucking sound-"
 
 Harry crossed to his bedroom on tiptoe, slipped inside, closed the door, and turned to collapse on his bed.
 
-The trouble was, there was already someone sitting on it.
+The trouble was, there was already someone on it.
