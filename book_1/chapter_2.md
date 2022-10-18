@@ -25,7 +25,7 @@ Harry groaned. So done.
 
 "Nothing, nothing..."
 
-Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after pulling  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
+Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from his bed and started hunting for socks. He found a pair under his bed and, after yoinking  a spider off one of them, put them on. Harry was used to spiders, because the dusty ass cupboard under the stairs was full of them, and that was his zone.
 
 Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was speedy af.
 
@@ -113,7 +113,7 @@ The prob was, weird shit often happened around Harry and it was no good telling 
 
 Once, Aunt Petunia, tired af of Harry coming back from Great Clips looking as though he hadn't been there at all, had taken a pair of kitchen scissors and cut his hair so short he was almost a full cueball except for his bangs, which she left "to hide that cringe disfigurement." Dudley had lamo at Harry, who spent a sleepless night imagining school the next day, where he was already razzed for his lack of style. Next morning, albeit, he had gotten up to find his do exactly as it had been before Aunt Petunia had sheared it off. He had been given a week in his cupboard for this, even though he had tried to explain that he didn't fuckin know how it had grown back so quickly. Not cool.
 
-Another time, Aunt Petunia had been tryna force him into a heinous ass old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it would polly fit a barbie doll, but certainly wouldn't be Harry's drip. Aunt Petunia decided it must have shrunk in the wash and, to his swell relief, Harry didn't have to take the heat. 
+Another time, Aunt Petunia had been tryna force him into a heinous ass old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it would prolly fit a barbie doll, but certainly wouldn't be Harry's drip. Aunt Petunia decided it must have shrunk in the wash and, to his swell relief, Harry didn't have to take the heat. 
 
 On the other hand, he'd gotten into deep shit for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's gee wizzed as anyone else's, there he was vibin' on the chimney. The Dursley's received a very salty letter from Harry's headmistress straight up snitching to them that Harry had been parkoring school buildings. But all he'd tried to do (as he popped off at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have snatched him mid-jump. 
 
@@ -133,13 +133,13 @@ Dudley and Piers were laughing their asses off.
 
 Big yikes, he wished he had stfu. If there was one thing the Dursleys hated even more than him asking questions, it was his hollin' about anything acting sus, no matter if it was a dream or cartoon - they seemed to think he might get sus ideas. 
 
-It was a v sunny Saturday and the zoo was asses and elbows with people. The Dursleys brought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could skirt him away, they bought him an off-brand lemon ice pop. It wasn't shitty either, Harry thought, licking it as they peeped a gorilla scratching its head who looked remarkably like Dudley, except that it wasn't blonde. 
+It was a v sunny Saturday and the zoo was asses and elbows with people. The Dursleys brought Dudley and Piers some B&J Ice cream at the entrance and then, because the smiling lady in the van asked Harry what he wanted before they could skirt him away, they bought him an off-brand lemon ice pop. It wasn't shitty either, Harry thought, licking it as they peeped a gorilla scratching its head who looked totes like Dudley, except that it wasn't blonde. 
 
 Harry had had a dank morning something he hadn't had in a long time. He was careful to walk a lil way apart from the Dursleys so that he wouldn't get clocked by Dudley and Piers, who were starting to get bored of the animals by lunchtime. They ate in a zoo restaurant, and when Dudley had a bitchfit bc his kickerbocker glory didn't have enough ice cream on top, Uncle Vernon snatched him another one and Harry was allowed to finish the first. 
 
 Harry felt, afterward, that he should have known it was all too bussin to last.
 
-After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, cobras and yolked, man-crushing pythons. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could''ve wrapped its bod twice around Uncle Vernon's car and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
+After lunch they went to the reptile house. It was nippy and dark in there, with lit windows all along the walls. Behind the glass, all sorts of lizards and sneks were crawling and slithering over bits of wood and stone. Dudley and Piers wanted to peep huge, poisonous, cobras and yolked, man-crushing pythons. Dudley quickly finded the largest danger noodle in the crib. It was clearly a bad bitch and could've wrapped its bod twice around Uncle Vernon's whip and hosed it--but rn it didn't look like it was feeling it. In fact, it was catchin' some z's.
 
 Dudley standed with his nose pressed against the glass, deekin' at the glistening brown coils.
 
@@ -192,7 +192,6 @@ The keeper of the reptile digs was shttin' kittens.
 The zoo director himself made Aunt Petunia a cuppa stront sweet tea while he gave spammed many sorries. Piers and Dudley could only gibber. Even tho Harry was positively sure that the snek hadn't done shit except clown around, snapping at they heels as it skirted by, but by the time they were back in Uncle Vernon's whip, Dudley was flexing how it had nearly bitten off his leg, while Piers was capping that it had tired to squeeze him to death. But for sure the worst, for polly only Harry, was Piers chilling out enough to snitch, "Harry was talling to it, right Harry?"
 
 Uncle Vernon stalled until Piers was safely out of the crib until poppin off at Harry. He was so pressed he could hardly speak. He managed to say, "Go--cupboard--stay--no grub," before he collapsed into a chair, and Aunt Petunia had to sprint and snatch hima brandy so he could selective amnesia this event.
-
 
 Harry lay in his mid cupboard forever, manifesting he had a watch. He couldn't sus out what time it was and couldn't be fo sho the Dursleys were snozzin yet. Until they wer, he wan't gonna put his ass on the line to snatch some food from the kitchen.
 
