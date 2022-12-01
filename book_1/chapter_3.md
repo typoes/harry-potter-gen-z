@@ -1,21 +1,21 @@
 # Chapter Three
 ## The letters from ur mom
 
-The escape of the Brazilian boa constrictor earned Harry his longest-ever punishment. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already broken his new video camera, crashed his remote control airplane, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
+The escape of the Brazilian boa constrictor earned Harry his longest-ever punishment. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
 
-Harry was glad school was over, but there was no escaping Dudley’s crew, who visited the house every single day. Piers, Dennis, Malcolm, and Gordon were all thicc af and stupid, but as Dudley was the thiccest and stupidest mf of the lot, he was the leader. The rest of them were all quite happy to join in Dudley’s favorite sport: Harry Hunting.
+Harry was glad school was over, but there was no escaping Dudley’s crew, who visited da crib every single day. Piers, Dennis, Malcolm, and Gordon were all thicc af and stupid, but as Dudley was the thiccest and stupidest mf of the lot, he was the leader. The rest of them were all quite happy to join in Dudley’s favorite sport: Harry Hunting.
 
-This was why Harry spent as much time as possible out of the house, wandering around and thinking about the end of the holidays, where he could see a smol ray of hope. When September came he would be going off to secondary school and, for the first time in his life, he wouldn’t be  with Dudley. Dudley had been accepted at Uncle Vernon’s old private school, Smeltings. Piers Polkiss was going there too. Harry, on the other hand, was going to Stonewall High, the local public school. Dudley thought this was very funny.
+This was why Harry spent as much time as possible out of da crib, wandering around and thinking about the end of the holidays (which felt about as long as the first covid lockdown) where he could see a smol ray of hope. When September came he would be going off to secondary school and, for the first time in his life, he wouldn’t be  with Dudley. Dudley had been accepted at Uncle Vernon’s old private tory school, Smeltings. Piers Polkiss was going there too. Harry, on the other hand, was going to Stonewall High, the local public school. Dudley thought this was well funny.
 
 “They stuff people’s heads down the toilet the first day at Stonewall,” he told Harry. “Want to come upstairs and practice?”
 
 “No, thanks,” said Harry. “The poor toilet’s never had anything as horrible as your head down it — it might be triggered.” Then he ran, before Dudley's smooth brain could work out what he’d said.
 
-One day in July, Aunt Petunia took Dudley to London to buy his Smeltings uniform, leaving Harry at Mrs. Figg’s. Mrs. Figg wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry watch television and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
+One day in July, Aunt Petunia took Dudley to London to buy his Smeltings uniform, leaving Harry at Mrs. Figg’s. Mrs. Figg wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry play fortnite and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
 
 That evening, Dudley paraded around the living room for the family in his brand-new uniform. Smeltings’ boys wore maroon tailcoats, orange knickerbockers, and flat straw hats called boaters. They also carried knobbly sticks, used for hitting each other while the teachers weren’t looking. This trauma was supposed to be making them stronger for later life.
 
-As he looked at Dudley in his new knickerbockers, Uncle Vernon said gruffly that it was the sickest, most swag moment of his life. Aunt Petunia burst into tears and said she couldn’t believe it was her Ickle Dudleykins, he looked so hot, smexy and grown-up. Harry didn’t trust himself to speak. He thought two of his ribs might already have cracked from trying not to laugh. There was a horrible smell in the kitchen the next morning when Harry went in for breakfast. It seemed to be coming from a large metal tub in the sink. He went to have a look. The tub was full of what looked like dirty rags swimming in gray, sussy water.
+As he looked at Dudley in his new knickerbockers, Uncle Vernon said gruffly that it was the sickest, most swag moment of his life. Aunt Petunia burst into tears and said she couldn’t believe it was her Ickle Dudleykins, he looked so hot, smexy and grown-up. Harry didn’t trust himself to speak. He thought two of his ribs might already have cracked from trying not to laugh. There was a sus smell in the kitchen the next morning when Harry went in for breakfast. It seemed to be coming from a large metal tub in the sink. He went to have a look. The tub was full of what looked like dirty rags swimming in gray, sussy water.
 
 “OwO whas dis?” he asked Aunt Petunia. Her lips tightened as they always did if he dared to ask a question.
 
@@ -29,7 +29,7 @@ Harry looked in the bowl again.
 
 Harry seriously doubted this, but thought it best to save himself from further trauma. He sat down at the table and tried a coping mechanism to relieve his depression and anxiety about how he was going to look on his first day at Stonewall High — dressed like an old Bakka probably.
 
-Dudley and Uncle Vernon came in, both with wrinkled noses because of the amogus imposter-like smell from Harry’s new uniform. Uncle Vernon opened his newspaper as usual and Dudley banged his Smelting stick, which he carried everywhere, on the table.
+Dudley and Uncle Vernon came in, both with wrinkled noses because of the amogus imposter-like smell from Harry’s new uniform. Uncle Vernon opened his twitter feed as usual and Dudley banged his Smelting stick, which he carried everywhere, on the table.
 
 They heard the click of the mail slot and flop of letters on the doormat.
 
@@ -43,9 +43,9 @@ They heard the click of the mail slot and flop of letters on the doormat.
 
 “Poke him with your Smelting stick, Dudley.”
 
-Harry dodged the Smelting stick and went to get the mail. Three things lay on the doormat: a postcard from Uncle Vernon’s sister Marge, who was vacationing on the Isle of Wight, a brown envelope that looked like a bill, and — YO TF, a letter for Harry.
+Harry dodged the Smelting stick and went to get the mail. Three things lay on the doormat: Dominos flyer, a charity bag, and — YO TF, a letter for Harry. (there were no bills as Mr Dusley had gone paperless and Aunt Marge sent his a WhatsApp)
 
-Harry picked it up and stared at it, his heart twanging like a giant elastic band. No one, ever, in his whole life, had written to him. Who would? He was lonely and depressed af, he had no friends, no other fam — he didn’t belong to the library, so he’d never even got rude notes asking for books back. Yet here it was, a letter, addressed so plainly there could be no cap:
+Harry picked it up and stared at it, his heart twanging like a giant elastic band. No one, ever, in his whole life, had written to him. Who would? Who send letters these days. He was lonely and depressed af, he had no friends, no other fam — he didn’t belong to the library, so he’d never even got rude notes asking for books back. Yet here it was, a letter, addressed so plainly there could be no cap:
 
 Mr. H. Potter
 
@@ -57,21 +57,21 @@ Little Whinging
 
 Surrey
 
-The envelope was chonkie, made of crusty, yellowish parchment, and the address was written in emerald-green ink. There was no stamp. 
+The envelope was chonkie, made of crusty, yellowish paper(????), and the address was written in emerald-green ink. There was no stamp or barcode. 
 
-Turning the envelope over, his hand trembling, Harry saw a purple wax seal bearing a coat of arms; a lion, an eagle, a badger, and a snake surrounding a large letter H.
+Turning the envelope over, his hand trembling, Harry saw a fancy af purple wax seal bearing a coat of arms; a lion, an eagle, a badger, and a snake surrounding a large letter H.
 
 “Hurry up, boy!” shouted Uncle Vernon from the kitchen. “What are you doing, checking if the letters are cap?” He lmfaoed at his own joke.
 
-Harry went back to the kitchen, still staring at his letter. He handed Uncle Vernon the bill and the postcard, sat down, and slowly began to open the yellow envelope.
+Harry went back to the kitchen, still staring at his letter. He handed Uncle Vernon the junkmail and charity bag, sat down, and slowly began to open the yellow envelope.
 
-Uncle Vernon ripped open the bill, cringed in disgust— (thinking he was too good for such things), and flipped over the postcard.
+Uncle Vernon looked at the charity bag, cringed in disgust— (thinking he was too good for such things), threw that and the Dominos flyer in the bin. His phone buzzed with a new WhatsApp message.
 
 “Marge’s sicc,” he informed Aunt Petunia. “Ate a funny whelk…”
 
 “Dad!” said Dudley suddenly. “Dad, Harry’s got somepin kinda sus!”
 
-Harry was on the point of unfolding his letter, which was written on the same heavy parchment as the envelope, when it was jerked sharply out of his hand by Uncle Vernon.
+Harry was on the point of unfolding his letter, which was written on the same heavy paper(???) as the envelope, when it was jerked sharply out of his hand by Uncle Vernon.
 
 “That’s mine!” said Harry, trying to snatch it back.
 
@@ -101,7 +101,7 @@ Harry didn’t move.
 
 “Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they possibly know where he sleeps? You don’t think they’re watching the house?”
 
-“Watching — spying — might be following us,” muttered Uncle Vernon wildly.
+“Watching — spying — proberbly hacked the Alexa and are listening in on us,” muttered Uncle Vernon wildly.
 
 “But what should we do, Vernon? Should we write back? Tell them we don’t want —”
 
@@ -117,21 +117,21 @@ That evening when he got back from adulting for money, Uncle Vernon did somethin
 
 “Where’s my letter?” said Harry, the moment Uncle Vernon had squeezed through the door. “Who’s writin' me?”
 
-“No one. It was addressed to you by mistake,” said Uncle Vernon shortly. “I have burned it.”
+“No one. It was spam mail,” said Uncle Vernon shortly. “I have burned it.”
 
-“It was not a mistake,” said Harry angrily, “it had my cupboard on it.”
+“It was not spam mail,” said Harry angrily, “it had my cupboard on it.”
 
 “SILENCE!” yelled Uncle Vernon, and a couple of spiders fell from the ceiling. He took a few deep breaths and then forced his face into a smile, which looked quite painful. 
 
-“Er — yes, Harry — about this cupboard. Your aunt and I have been thinking… you’re really getting a bit big for it… we think it might be nice if you moved into Dudley’s second bedroom.
+“Er — yes, Harry — about this cupboard. Your aunt and I have been thinking… you’re really getting a bit chonky for it… we think it might be nice if you moved into Dudley’s second bedroom.
 
 “Why?” said Harry.
 
 “Don’t ask questions!” snapped his uncle. “Take this stuff upstairs, now.”
 
-The Dursleys’ house had four bedrooms: one for Uncle Vernon and Aunt Petunia, one for visitors (usually Uncle Vernon’s sister, Marge), one where Dudley slept, and one where Dudley kept all the toys and things that wouldn’t fit into his first bedroom. It only took Harry one trip upstairs to move everything he owned from the cupboard to this room. He sat down on the bed and stared around him. Nearly everything in here was broken. The month-old video camera was lying on top of a small, working tank Dudley had once driven over the next door neighbor’s dog; in the corner was Dudley’s first-ever television set, which he’d put his foot through when his favorite program had been canceled; there was a large birdcage, which had once held a parrot that Dudley had swapped at school for a real air rifle, which was up on a shelf with the end all bent because Dudley had sat on it. Other shelves were full of books. They were the only things in the room that looked as though they’d never been touched.
+The Dursleys’ house had four bedrooms: one for Uncle Vernon and Aunt Petunia, one for visitors (usually Uncle Vernon’s sister, Marge), one where Dudley slept, and one where Dudley kept all the toys and things that wouldn’t fit into his first bedroom. It only took Harry one trip upstairs to move everything he owned from the cupboard to this room. He sat down on the bed and stared around him. Nearly everything in here was broken. The broken Playstation 4 was lying on top of a Minecraft lego set Dudley had given up on making; in the corner was Dudley’s first-ever television set (ONLY 40 inches), which he’d put his foot through when his favorite program had been canceled; there was a large birdcage, which had once held a parrot that Dudley had swapped at school for an anime sword, which was up on a shelf with the end all bent because Dudley had sat on it. Other shelves were full of books. They were the only things in the room that looked as though they’d never been touched.
 
-From downstairs came the sound of Dudley bawling at his mother, “I don’t want him in there… I need that room… make him get out…”
+From downstairs came the sound of Dudley throwing a temper tantrum at his mother, “I don’t want him in there… I need that room… make him get out…”
 
 Harry sighed and stretched out on the bed. Yesterday he’d have given anything to be up here. Today he’d rather be back in his cupboard with that letter than up here without it.
 
