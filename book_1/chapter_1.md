@@ -35,17 +35,17 @@ As he pulled into the driveway the first thing he sister saw was the same chonk 
 
 "POV: You're on my DNI list," Mr Dursley spat at the cat as he walked inside.
 
-His bae's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news: "Last thing: birders everywhere are fighting for their lives right now. Them hooters hunt at night and avoid sunlight like nerds, but for some reason they've been invading our skies since sunrise. The science isn't science-ing." The newscaster smirked. "Weird af, bro. Now, Jim McGuffin, what that weather do, boyyyy? Anymore owl showers tonight?"
+His girlypop's day was swag asf. Dudley had learned to say "Naur" ("Just like his bestie!" cooed Mrs Dursley). When his fav oomf finally went afk, Mr Dursley went to the living room to watch sum news: "Last thing: birders everywhere are fighting for their lives right now. Them hooters hunt at night and avoid sunlight like nerds, but for some reason they've been invading our skies since sunrise. The science isn't science-ing." The newscaster smirked. "Weird af, bro. Now, Jim McGuffin, what that weather do, boyyyy? Anymore owl showers tonight?"
 
-"Say less, Ted," said the weatherman, "Tbh, idk, but the birbs aren’t the only weird today. Viewers as far apart as Kent, Yorkshire, and Dundee have been tweeting that instead of the rain I promised yesterday, the sky is having shooting stars! Maybe they're celebrating Bonfire Night early. It will actually rain tonight though, but it’s about to be raining hands if mfs don’t stop calling about these damn birds."
+"Say less, Ted," said the weatherman, "Tbh, idk, but the birbs aren’t the only weird mullet daddies today. Viewers as far apart as Kent, Yorkshire, and Dundee have been tweeting that instead of the rain I promised yesterday, the sky is having shooting stars! Maybe they're celebrating Bonfire Night early. It will actually rain tonight though, but it’s about to be raining hands if mfs don’t stop calling about these damn birds."
 
 Mr. Dursley 404 error-ed in his armchair. Shooting stars? Owls waking up and choosing violence? Sus boomers dressed in renfaire outfits? And spilling tea bout the Potters...
 
-Mrs. Dursley came into the living room carrying two cups of tea. It was no good. He’d have to say something to her. He cleared his throat nervously. "Er – Petunia, dear – you haven’t heard from your sis of late, maybe?"
+Mrs. Dursley came into the living room carrying two cups of tea. It was no good. He’d have to say something to her. He cleared his throat nervously. "Er – Petunia, my cotton swab, – you haven’t heard from your sis of late, maybe?"
 
 As he had expected, Mrs. Dursley looked like she ate a lemon. After all, they ghosted her sis.
 
-"No," she said sharply. "Why?"
+"Nope," she said sharply. "Why?"
 
 "Cringey crap on the news," Mr. Dursley mumbled. "Owls... shooting stars... and there were a lot of edgelords in town today..."
 
@@ -55,7 +55,7 @@ As he had expected, Mrs. Dursley looked like she ate a lemon. After all, they gh
 
 Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he dared tell her that he’d heard the name "Potter." He decided he didn’t dare. Instead he said, as casually as he could, "Their crotch goblin – he’d be about Dudley’s age now, wouldn’t he?"
 
-"Bet," huffed Mrs. Dursley.
+"Probs," huffed Mrs. Dursley.
 
 "What’s his name again? Howard, isn’t it?"
 
