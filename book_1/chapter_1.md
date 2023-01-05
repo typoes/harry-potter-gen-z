@@ -147,7 +147,7 @@ Prof McG wiped her eyes and got out her hand sanitizer. Dumbledore gave a great 
 
 "You don’t mean – you can’t mean these Karens?!" cried Prof McG, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. These basic fools aren't in the Same WhatsApp group! And their spawn – I saw him kicking his mother all the way up the street screaming for sweets. Harry Potter come and live here?!"
 
-"It’s the best place for him," said Dumbledore firmly. "His aunt and uncle will be able to explain everything to him when he’s older. I’ve written them a letter."
+"Cope. It’s the best place for him," said Dumbledore firmly. "His aunt and uncle will be able to explain everything to him when he’s older. I’ve written them a letter."
 
 "A _letter_?" repeated Prof McG faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a letter? These people will never understand him! He’ll be famous – legendary – I wouldn’t be shook if today was known as Harry Potter Day in the future – there will be books written about Harry – every child in our world will know his name!"
 
