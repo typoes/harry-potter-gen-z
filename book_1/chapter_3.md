@@ -27,7 +27,7 @@ Harry looked in the bowl again.
 
 “Don’t be so thicc,” snapped Aunt Petunia. “I’m making art of some of Dudley’s old things gray for you. It’ll look just like everyone else’s when I’ve finished.” 
 
-Harry seriously doubted this, but thought it best to save himself from further trauma. He sat down at the table and tried a coping mechanism to relieve his depression and anxiety about how he was going to look on his first day at Stonewall High — dressed like an old Bakka probably.
+Harry def doubted this, but chat was like 'prolly best to not get more trauma ig'. He sat down at the table and tried a coping mechanism to relieve his depression and anxiety about how he was going to look on his first day at Stonewall High — dressed like an old Bakka probably.
 
 Dudley and Uncle Vernon came in, both with wrinkled noses because of the amogus imposter-like smell from Harry’s new uniform. Uncle Vernon opened his twitter feed as usual and Dudley banged his Smelting stick, which he carried everywhere, on the table.
 
