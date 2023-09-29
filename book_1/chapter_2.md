@@ -29,7 +29,7 @@ Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from h
 
 Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was speedy af.
 
-Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought it gave main charater energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
+Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought it gave main character energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
 "When your parents wrecked their whip and unalived." she had said. "And don't be askin questions."
 
@@ -43,15 +43,15 @@ Bout once a week, Uncle Vernon peeped over the top of his tablet and shouted tha
 
 Harry was frying eggs by the time Dudley vented in the kitchen with his birther. Dudley was a mini-me of Uncle Vernon. He had a chonky pink face, hardly any neck, smol watery blue eyes, and lotsa blonde hair that lay flat upon his fugly head. Aunt Petunia often said that Dudley looked like a bb angel - Harry often said that he looked like a rejected plus size cabbage patch doll. 
 
-Harry put the feast of eggs and bacon on the table, which was supa hexagon hard bc there wasn't much room. Dudley, meanwhile, was countin' is presents. His privileged face fell.
+Harry put the feast of eggs and bacon on the table, which was supa hexagon hard bc there wasn't much room. Dudley, meanwhile, was countin' his presents. His privileged face fell.
 
 "Thirty-six," he mathed, looking up at his mother and father. "That's two less than last year."
 
 "Bae, you haven't counted Auntie Marge's present, cop a look, it's here under this big one from Mummy and Daddy."
 
-"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who could sus out a huge Dudley bitchfit coming on, began chugging down his bacon as fast as possible in case Dudley yeeted the table over. 
+"All right, thirty-seven then.", said Dudley, color changing to bright red. Harry, who was catching vibes of a huge Dudley bitchfit coming on, began chugging down his bacon as fast as possible in case Dudley yeeted the table over. 
 
-Aunt Petunia saw the red flags, too, because she said quickly, "And we'll cop you another two presents while we're vibin' today. How's that, qt? Two more gifts. Is that aiight?"
+Aunt Petunia saw the red flags, too, because she said quickly, "And we'll cop you another two presents while we're chillin' today. How's that, qt? Two more gifts. Is that aiight?"
 
 Dudley strained as the wheels turned in his head, ever so slowly. "So I'll have thirty... thirty..."
 
@@ -63,7 +63,7 @@ Uncle Vernon chuckled.
 
 "Lol lil dude just wants to get his dough's worth, just like his pop. That's mah boi, Dudley!" He ruffled Dudley's hair. 
 
-At that moment the telephone rang and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a bluray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
+At that moment the telephone went brrrrr and Aunt Petunia went to answer it while Harry and Uncle Vernon watched Dudley unwrap the racing bike, a video camera, a drone, sixteen new computer games, and a bluray player. He was ripping the paper off a gold wristwatch when Aunt Petunia came back from the telephone looking like somebody peed in her cornflakes. 
 
 "Shitty news, Vernon," she said. "Mrs. Figg's clumsy ass broken her leg. She can't take him." She jerked her head in Harry's direction. 
 
@@ -115,7 +115,7 @@ Once, Aunt Petunia, tired af of Harry coming back from Great Clips looking as th
 
 Another time, Aunt Petunia had been tryna force him into a heinous ass old sweater of Dudley's (brown with orange puff balls). The harder she tried to pull it over his head, the smaller it became, until it would prolly fit a barbie doll, but certainly wouldn't be Harry's drip. Aunt Petunia decided it must have shrunk in the wash and, to his swell relief, Harry didn't have to take the heat. 
 
-On the other hand, he'd gotten into deep shit for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's gee wizzed as anyone else's, there he was vibin' on the chimney. The Dursley's received a very salty letter from Harry's headmistress straight up snitching to them that Harry had been parkoring school buildings. But all he'd tried to do (as he popped off at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have snatched him mid-jump. 
+On the other hand, he'd gotten into deep shit for being found on the roof of the school kitchens. Dudley's gang had been chasing him as usual, as much to Harry's gee wizzed as anyone else's, there he was vibin' on the chimney. The Dursley's received a very salty letter from Harry's headmistress straight up snitching to them that Harry had been parkouring school buildings. But all he'd tried to do (as he popped off at Uncle Vernon through the locked door of his cupboard) was jump behind the big trash cans outside the kitchen doors. Harry supposed that the wind must have snatched him mid-jump. 
 
 But today, nada was going to go to shit. It was even worth being with Dudley and Piers to be spending the day somewhere that wasn't school, his cupboard, or Mrs. Figg's cabbage smelling living room. 
 
@@ -155,9 +155,9 @@ The snek suddenly opened its beady eyes. Slowly, v slowly, it uppied its head un
 
 It winked.
 
-Harry was befuddled. At break neck speed he peeped around to see if was copping this too. They weren't. He peeped back at the snek and winked, too.
+Harry was befuddled. At break neck speed he peeped around to see if the rest of the fam was coppin this too. They weren't. He peeped back at the snek and winked, too.
 
-The snek boogied its head toward Uncle Vernon and Dudley, then raised its eyes to the ceiling (the sass was clear). It gave Haryy a look that obvs said:
+The snek boogied its head toward Uncle Vernon and Dudley, then raised its eyes to the ceiling (the sass was clear). It gave Harry a look that obvs said:
 
 "These bitches do that all the time."
 
@@ -179,24 +179,24 @@ As the snek zigged its head, a loud ass shout behind Harry snatched both of thei
 
 Dudley came zoomin toward them.
 
-"Get out the way," he said, clocking Harry in the ribs. Shook, Harry fell on the hard ass concrete floor. What came next happened peeped out it happened -- one sec,,  Piers and Dudley were basically groping the glass, the next, they had yeeted back with howls of horror.
+"Get out the way," he said, clocking Harry in the ribs. Shook, Harry fell on the hard ass concrete floor. What came next happened so lickety-split everyone was like ???? -- one sec,  Piers and Dudley were basically groping the glass, the next, they had yeeted back with howls of horror.
 
 Harry sat up and was shook; the glass front of the boa constrictor's tank had unappeared. The baddie snek was uncoilling itself and hauling ass out on too the floor. Bitches throughtout the reptile crib were quaking and skirting out the exits.
 
-As the snek slid swiftly past him, Harry on god had heard a low, hissing voice say, "The sexual tension between me and Brazil.... Thx, amigo."
+As the snek slid swiftly past him, Harry on god had heard a low, hissing voice say, "Aight imma head out to Brazil.... Thx, boyo."
 
-The keeper of the reptile digs was shttin' kittens.
+The keeper of the reptile digs was shittin' kittens.
 
 "But the glass," he kept saying, "where did the glass go?"
 
-The zoo director himself made Aunt Petunia a cuppa stront sweet tea while he gave spammed many sorries. Piers and Dudley could only gibber. Even tho Harry was positively sure that the snek hadn't done shit except clown around, snapping at they heels as it skirted by, but by the time they were back in Uncle Vernon's whip, Dudley was flexing how it had nearly bitten off his leg, while Piers was capping that it had tired to squeeze him to death. But for sure the worst, for polly only Harry, was Piers chilling out enough to snitch, "Harry was talling to it, right Harry?"
+The zoo director himself made Aunt Petunia a cuppa strong sweet tea while he spammed sorries. Piers and Dudley could only gibber. Harry was one hundo p confident that the snek hadn't done shit except clown around, snapping at they heels as it skirted by, but by the time they were back in Uncle Vernon's whip, Dudley was flexing how it had nearly bitten off his leg, while Piers was capping that it had tried to squeeze him to death. But for sure the worst, for prolly only Harry, was Piers chilling out enough to snitch, "Harry was talking to it, right Harry?"
 
-Uncle Vernon stalled until Piers was safely out of the crib until poppin off at Harry. He was so pressed he could hardly speak. He managed to say, "Go--cupboard--stay--no grub," before he collapsed into a chair, and Aunt Petunia had to sprint and snatch hima brandy so he could selective amnesia this event.
+Uncle Vernon had a error 404 not found until Piers was safely out of the crib to start poppin off at Harry. He was so pressed he could hardly speak. He managed to say, "Go--cupboard--stay--no grub," before he collapsed into a chair, and Aunt Petunia had to sprint and snatch him a brandy so he could selective amnesia this event.
 
-Harry lay in his mid cupboard forever, manifesting he had a watch. He couldn't sus out what time it was and couldn't be fo sho the Dursleys were snozzin yet. Until they wer, he wan't gonna put his ass on the line to snatch some food from the kitchen.
+Harry lay in his emo cupboard forever, manifesting he had a watch. He couldn't sus out what time it was and couldn't be fo sho the Dursleys were big snoozin yet. Until they wer, he wan't gonna put his ah on the line to snatch some food from the kitchen.
 
-He'd been thug lifing with the Dursleys almost ten years, ten trash ass years, as long as he could rember, ever since he'd bin a bb and his parentals had unalived in a car crash. He had no memories of being in the whip. Sometimes, he big brained up a sus reality: a flashy flash of green light and a burnning pain on his forebead. This, he supposed, was the crash, though it made not fuckin sense for a green light to be involved. He couldn't remember shit abt his parents. His aunt and uncle neva gossed abt them, and ofc he was gatekeeped from asking questions. There were no pics of them in the crib. 
+He'd been thug-lifing with the Dursleys almost ten years, ten trash ass years, as long as he could remember, ever since he'd bin a bb and his parentals had unalived in a car crash. He had no memories of being in the whip. Sometimes, he big brained up a sus reality: a flashy flash of green light and a burnnning pain on his forehead. This, he supposed, was the crash, though it made no fuckin sense for a green light to be involved. He couldn't remember shit abt his parents. His aunt and uncle neva gossed abt them, and ofc he was gatekeeped from asking questions. There were no pics of them in the crib. 
 
-When he had been a youngin, Harry had manifested of some unknown relation shownin up and snatchin him away, but it never happened; the Dursley were his only fam. Yet sometimes he thought (more like manfested) that randoms in the street seemed to know him. Very sus randoms too. A lil man in a violet top hat had bowed to him once while out shopping with Aunt Petunia and Dudley. After interogating Harry if he knew the man, Aunt Petunia had yeeted them out of the shop without buying anything. A crackhead looking old women drippin in all green had waved merrily at him on a bus. A cueball man in a v long purple coat had actually shaken his hanf in the street the other day and then dipped without a word. The susest thing about all these people was the way they seemed to vanish the sec Harry tried to get a closer look. 
+When he had been a youngin, Harry had manifested of some unknown relation shownin up and snatchin him away, but it never happened; the Dursleys were his only fam. Yet sometimes he thought (more like manifested) that randoms in the street seemed to know him. Very sus randoms too. A lil man in a violet top hat had bowed to him once while out shopping with Aunt Petunia and Dudley. After interrogating Harry if he knew the man, Aunt Petunia had yeeted them out of the shop without buying anything. A crackhead-looking old women drippin in all green had waved merrily at him on a bus. A cueball man in a v long purple coat had actually shaken his hand in the street the other day and then dipped without a word. The sussiest thing about all these people was the way they seemed to vanish the sec Harry tried to get a closer look. 
 
-At school, Harry had no homies. Everyone knew that Dudly's gang hated that odd Harry Potter in his baggy ass old clothes and broken glasses, and nobody finna disagreed wit Dudley's gang. 
+At school, Harry had no homies. Everyone knew that Dudley's gang hated that odd Harry Potter in his baggy ass old clothes and broken glasses, and nobody finna disagreed wit Dudley's gang. 
