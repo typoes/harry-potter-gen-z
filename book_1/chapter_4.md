@@ -73,7 +73,7 @@ Hagrid looked shocked.
 
 "What shit?" asked Harry.
 
-"WHAT SHIT?" Hagrid thundered. "Now hold the phone!"
+"WHAT SHIT?" Hagrid thundered. "Now let him cook!"
 
 He had leapt to his feet. Boi was amgery, no cap. The Dursleys were triggered against the wall.
 
