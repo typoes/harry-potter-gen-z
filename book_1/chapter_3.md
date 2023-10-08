@@ -1,7 +1,7 @@
 # Chapter Three
 ## The letters from ur mom
 
-The escape of the Brazilian boa constrictor earned Harry his longest-ever punishment. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
+The escape of the Brazilian boa constrictor got Harry his big ass bozo yeeted. By the time he was allowed out of his cupboard again, the summer holidays had started and Dudley had already cracked his new iphone screen, smashed his gaming laptop playing fortnite, and, first time out on his racing bike, knocked down old, crusty Mrs. Figg as she crossed Privet Drive on her crutches.
 
 Harry was glad school was over, but there was no escaping Dudley’s crew, who visited da crib every single day. Piers, Dennis, Malcolm, and Gordon were all thicc af and stupid, but as Dudley was the thiccest and stupidest mf of the lot, he was the leader. The rest of them were all quite happy to join in Dudley’s favorite sport: Harry Hunting.
 
@@ -11,11 +11,11 @@ This was why Harry spent as much time as possible out of da crib, wandering arou
 
 “No, thanks,” said Harry. “The poor toilet’s never had anything as mid as your head down it — it might be triggered.” Then he ran, before Dudley's smooth brain could work out what he’d said.
 
-One day in July, Aunt Petunia took Dudley to London to buy his Smeltings uniform, leaving Harry at Mrs. Figg’s. Mrs. Figg wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry play fortnite and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
+One day in July, Aunt Petunia took Dudley to London to buy his Smeltings non drip scheiße, leaving Harry at Mrs. Figg’s. Mrs. Figg wasn’t as bad as usual. It turned out she’d broken her leg tripping over one of her cats, and she didn’t seem quite as fond of them as before. She let Harry play fortnite and gave him a bit of chocolate cake that tasted as though she’d had it for several years; it was really quite a sussy amogus cake.
 
 That evening, Dudley paraded around the living room for the family in his brand-new uniform. Smeltings’ boys wore maroon tailcoats, orange knickerbockers, and flat straw hats called boaters. They also carried knobbly sticks, used for hitting each other while the teachers weren’t looking. This trauma was supposed to be making them stronger for later life.
 
-As he looked at Dudley in his new knickerbockers, Uncle Vernon said gruffly that it was the sickest, most swag moment of his life. Aunt Petunia burst into tears and said she couldn’t believe it was her Ickle Dudleykins, he looked so hot, smexy and grown-up. Harry didn’t trust himself to speak. He thought two of his ribs might already have cracked from trying not to lmfao. There was a sus smell in the kitchen the next morning when Harry went in for breakfast. It seemed to be coming from a large metal tub in the sink. He went to have a look. The tub was full of what looked like dirty rags swimming in gray, sussy water.
+As he looked at Dudley in his new knickerbockers, Uncle Vernon said gruffly that it was the sickest, most swag moment of his life. Aunt Petunia went total qq and said she couldn’t believe it was her Ickle Dudleykins, he looked so hot, smexy and grown-up. Harry didn’t trust himself to speak. He thought two of his ribs might already have cracked from trying not to lmfao. There was a sus smell in the kitchen the next morning when Harry went in for breakfast. It seemed to be coming from a large metal tub in the sink. He went to have a look. The tub was full of what looked like dirty rags swimming in gray, sussy water.
 
 “OwO whas dis?” he asked Aunt Petunia. Her lips tightened as they always did if he dared to ask a question.
 
@@ -23,7 +23,7 @@ As he looked at Dudley in his new knickerbockers, Uncle Vernon said gruffly that
 
 Harry looked in the bowl again.
 
-“Oh,” he said, “I didn’t realize it had to be so wet.”
+“Oh,” he said, “I didn’t realize it had to be so moist.”
 
 “Don’t be so thicc,” snapped Aunt Petunia. “I’m making art of some of Dudley’s old things gray for you. It’ll look just like everyone else’s when I’ve finished.” 
 
@@ -135,7 +135,7 @@ From downstairs came the sound of Dudley throwing a temper tantrum at his mother
 
 Harry sighed and stretched out on the bed. Yesterday he’d have given anything to be up here. Today he’d rather be back in his cupboard with that letter than up here without it.
 
-Next morning at breakfast, everyone was rather quiet. Dudley was shook. He’d screamed, whacked his father with his Smelting stick, been sick on purpose, kicked his mother, and thrown his tortoise through the greenhouse roof, and he still didn’t have his room back. Harry was thinking about this time yesterday and bitterly wishing he’d opened the letter in the hall. Uncle Vernon and Aunt Petunia kept looking at each other darkly.
+Next morning at breakfast, everyone accidentally muted their mics. Dudley was being a little bozo, he screamed, been sick on purpose, then did some goofy ahh anime moves on joe mama, and yeeted his tortoise through the greenhouse roof, and he still didn’t have his room back. Harry was thinking about this time yesterday and bitterly wishing he’d opened the letter in the hall. Uncle Vernon and Aunt Petunia kept looking at each other darkly.
 
 When the mail arrived, Uncle Vernon, who seemed to be trying to be nice to Harry, made Dudley go and get it. They heard him banging things with his Smelting stick all the way down the hall. Then he shouted, “There’s another one! ‘Mr. H. Potter, The Smallest Bedroom, 4 Privet Drive —’”
 
