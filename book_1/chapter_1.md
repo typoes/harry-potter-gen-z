@@ -153,7 +153,7 @@ Prof McG wiped her eyes and got out her hand sanitizer. Dumbledore gave a great 
 
 "Bet," said Dumbledore, looking super serious through his specs. "It would be enough to go to anyone's head. An influencer before he can walk and talk! Famous for something he won't even remember! Can't you see how much better off he'll be, growing up away from all that until he's ready to take it?"
 
-Prof McG made fish faces like she was going to say something but thought better. She composed herself then said, "Bet, ikr. But how is the boy getting here, Dumbledore?" She eyed his cloak suddenly as though he thought he was transporting the babin.
+Prof McG made fish faces like she was going to say something but thought better. She composed herself then said, "Bet, ikr. But how is the boy getting here, Dumbledore?" She eyed his cloak suddenly as though she thought he was transporting the babin.
 
 "Hagrid's bringing him."
 
