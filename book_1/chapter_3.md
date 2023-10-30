@@ -33,7 +33,7 @@ Dudley and Uncle Vernon came in, both with wrinkled noses because of the amogus 
 
 They heard the click of the mail slot and flop of letters on the doormat.
 
-“Get the mail, Dudley,” said Uncle Vernon from behind his paper.
+“Get the mail, Dudley,” said Uncle Vernon from behind his iphone.
 
 “Make Harry get it.”
 
@@ -99,7 +99,7 @@ Harry didn’t move.
 
 “OUT!” roared Uncle Vernon, and he took both Harry and Dudley by the scruffs of their necks and yeeted them into the hall, slamming the kitchen door behind them. Harry and Dudley promptly had a lil sissy-fight over who would listen at the keyhole; Dudley won, so Harry, his glasses dangling from one ear, lay flat on his stomach to peep through the crack between door and floor. Harry considered venting into the room like the sussy imposter he was, but eventually decided against it.
 
-“Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they possibly know where he sleeps? You don’t think they’re watching the house?”
+“Vernon,” Aunt Petunia was saying in a quivering voice, “look at the address — how could they possibly know where he gets some z's? You don’t think they’re watching da crib?”
 
 “Watching — spying — proberbly hacked the Alexa and are listening in on us,” muttered Uncle Vernon wildly.
 
@@ -111,7 +111,7 @@ Harry could see Uncle Vernon’s shiny, drippy black shoes pacing up and down th
 
 “But —”
 
-“I’m not having one in the house, Petunia! Didn’t we swear when we took him in we’d gatekeep that dangerous nonsense?”
+“I’m not having one in my crib, Petunia! Didn’t we swear when we took him in we’d gatekeep that dangerous nonsense?”
 
 That evening when he got back from adulting for money, Uncle Vernon did something he’d never done before; he visited Harry in his cupboard.
 
@@ -129,7 +129,7 @@ That evening when he got back from adulting for money, Uncle Vernon did somethin
 
 “Don’t ask questions!” snapped his uncle. “Take this stuff upstairs rn.”
 
-The Dursleys’ house had four bedrooms: one for Uncle Vernon and Aunt Petunia, one for visitors (usually Uncle Vernon’s sis, Marge), one where Dudley slept, and one where Dudley kept all the toys and things that wouldn’t fit into his first bedroom. It only took Harry one trip upstairs to move everything he owned from the cupboard to this room. He sat down on the bed and stared around him. Nearly everything in here was broken. The broken Playstation 4 was lying on top of a Minecraft lego set Dudley had given up on making; in the corner was Dudley’s first-ever television set (ONLY 40 inches), which he’d put his foot through when his favorite program had been canceled; there was a large birdcage, which had once held a parrot that Dudley had swapped at school for an anime sword, which was up on a shelf with the end all bent because Dudley had sat on it. Other shelves were full of books. They were the only things in the room that looked as though they’d never been touched.
+The Dursleys’ crib had four bedrooms: one for Uncle Vernon and Aunt Petunia, one for visitors (usually Uncle Vernon’s sis, Marge), one where Dudley slept, and one where Dudley kept all the toys and things that wouldn’t fit into his first bedroom. It only took Harry one trip upstairs to move everything he owned from the cupboard to this room. He sat down on the bed and stared around him. Nearly everything in here was broken. The broken Playstation 4 was lying on top of a Minecraft lego set Dudley had given up on making; in the corner was Dudley’s first-ever television set (ONLY 40 inches), which he’d put his foot through when his favorite program had been canceled; there was a large birdcage, which had once held a parrot that Dudley had swapped at school for an anime sword, which was up on a shelf with the end all bent because Dudley had sat on it. Other shelves were full of books. They were the only things in the room that looked as though they’d never been touched.
 
 From downstairs came the sound of Dudley throwing a temper tantrum at his mother, “I don’t want him in there… I need that room… make him get out…”
 
@@ -157,7 +157,7 @@ Lights clicked on upstairs and to his horror Harry realized that the big, squash
 
 “I want —” he began, but Uncle Vernon was tearing the letters into pieces before his eyes.
 
-Uncle Vernon didn’t go to work that day. He stayed at home and nailed up the mail slot.
+Uncle Vernon didn’t go adulting for money that day. He stayed in da crib and nailed up the mail slot.
 
 “Ya see,” he explained to Aunt Petunia through a mouthful of nails, “if they can’t deliver them they’ll just give up.”
 
@@ -167,13 +167,13 @@ Uncle Vernon didn’t go to work that day. He stayed at home and nailed up the m
 
 On Friday, no less than twelve letters arrived for Harry. As they couldn’t go through the mail slot they had been pushed under the door, slotted through the sides, and a few even forced through the small window in the downstairs bathroom. 
 
-Uncle Vernon stayed at home again. After burning all the letters, he got out a hammer and nails and boarded up the cracks around the front and back doors so no one could go out. He hummed “Tiptoe Through the Tulips” as he worked, and jumped at small noises. On Saturday, things began to get out of hand. Twenty-four letters to Harry found their way into the house, rolled up and hidden inside each of the two dozen eggs that their very confused milkman had handed Aunt Petunia through the living room window. While Uncle Vernon made furious telephone calls to the post office and the dairy trying to find someone to trauma dump to, Aunt Petunia shredded the letters in her food processor.
+Uncle Vernon stayed in da crib again. After burning all the letters, he got out a hammer and nails and boarded up the cracks around the front and back doors so no one could go out. He hummed “Chug Jug With You” as he worked, and jumped at small noises. On Saturday, things began to get out of hand. Twenty-four letters to Harry found their way into da crib, rolled up and hidden inside each of the two dozen eggs that their very confused milkman had handed Aunt Petunia through the living room window. While Uncle Vernon made furious telephone calls to the post office and the dairy trying to find someone to trauma dump to, Aunt Petunia shredded the letters in her food processor.
 
 “Who on earth wants to talk to you this badly?” Dudley asked Harry in amazement.
 
 On Sunday morning, Uncle Vernon sat down at the breakfast table looking tired af and rather ill, but happy.
 
-“No post on Sundays,” he reminded them cheerfully as he spread marmalade on his newspapers, “no damn letters today —”
+“No post on Sundays,” he reminded them cheerfully as he spread marmalade on his iphone, “no damn letters today —”
 
 Something came whizzing down the kitchen chimney as he spoke and caught him sharply on the back of the head. Next moment, thirty or forty letters came pelting out of the fireplace like bullets. The Dursleys ducked, but Harry leapt into the air trying to catch one—
 
