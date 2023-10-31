@@ -1,3 +1,6 @@
+# Chapter Five
+## Diagon alley
+
 Harry was on his sigma grindset and woke up hella early the next morning. He knew it was light outside, but kept his eyes closed.
 
 "That ish was a dream" he said to himself. "I was def highkey tripping off that cuz ain't no way a giant named Hagrid told me I was going to a school for wizards. When I open my eyes I'll be back at the crib in that crusty cupboard"
