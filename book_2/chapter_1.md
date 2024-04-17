@@ -3,9 +3,9 @@
 
 <img src="https://static.wikia.nocookie.net/harrypotterbooks/images/b/bb/TheBirthday.jpeg" width="300" height="230">
 
-Them hoes at 4 Privet Drive was wildin again. Pappa Dursley's beauty-sleep (cuz those neck rolls ain't fluffin themselves) was interrupted at butt-o'-clock by some racket from Harry's lair under the stairs. 
+Them hoes at 4 Privet Drive was wildin again. Pappa Dursley's beauty-sleep (cuz those neck rolls ain't fluffin themselves) was interrupted at butt-o'-clock by some loud-ass hooting sound from Harry's lair under the stairs. 
 
-"Third time this week!" he roared across the table, his lil mustache flapping in the wind. "If you can't control that owl, it has to go!"
+"Third time this week!" he roared across the table, his lil mustache flapping in the wind. "If you can't control that owl, it's outta here!"
 
 Harry gave explaining another shot.
 
