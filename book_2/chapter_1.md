@@ -3,21 +3,21 @@
 
 <img src="https://static.wikia.nocookie.net/harrypotterbooks/images/b/bb/TheBirthday.jpeg" width="300" height="230">
 
-Them hoes at 4 Privet Drive was wildin again. Pappa Dursley's beauty-sleep (cuz those neck rolls ain't fluffin themselves) was interrupted at butt-o'-clock by some racket from Harry's lair under the stairs. 
+Them hoes at 4 Privet Drive was wildin again. Pappa Dursley's beauty-sleep (cuz those neck rolls ain't fluffin themselves) was interrupted at butt-o'-clock by some loud-ass hooting sound from Harry's lair under the stairs. 
 
-"Third time this week!" he roared across the table, his lil mustache flapping in the wind. "If you can't control that owl, it has to go!"
+"Third time this week!" he roared across the table, his lil mustache flapping in the wind. "If you can't control that owl, it's outta here!"
 
-Harry tried, yet again, to explain.
+Harry gave explaining another shot.
 
 "She's *bored*," he said. "Sitting in this house is unbased. If you would stop gatekeeping: I could let her out at
 night-"
 
 "Do I look stupid?" snarled Uncle Vernon, a bit of fried egg dangling from his floofy mustache, like dingleberries on ass hair.
-"I know what'll happen if that owl's let out."
+"I know what'll go down if that owl's let loose."
 
 He exchanged dark looks with his wife, Petunia.
 
-Harry tried to argue back but his words were drowned by a long, loud belch from the Dursley's
+Harry tried to argue back but his words were overshadowed by a long, mega burb from the Dursley's
 son, Dudley.
 
 "I want more bacon."

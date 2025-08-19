@@ -11,9 +11,9 @@ Harry woke with a start. His aunt tapped on the door again.
 
 "Up!" she screeched. Harry heard her trodding toward the kitchen and then the sound of a frying pan being put on the stove. He rolled onto his back and tried to remember the dream he had been having. It was sick. There had been a flying motorcycle in it. It totes felt like deja vu.
 
-His aunt teleported back outside the door.
+His aunt teleported back outside the door and started yapping.
 
-"Are you up yet?" she demanded.
+"Are you up yet?" she yapped.
 
 "Kinda," said Harry.
 
@@ -29,7 +29,7 @@ Dudley's bday - how could he have forgotten? Harry slowly unstuck himself from h
 
 Once clothed he skirted his way down the hall into the kitchen. The table was smol beneath all Dudley's bday gifts. It looked as though Dudley had gotten the new chromebook he wanted, not to mention the second television and the racing bike. Harry was confusion as to why Dudley wanted a racing bike, as Dudley was a big heckin' chonker and hated gains - unless of course it involved throwing hands. Dudley's fave punching bag was Harry, but he couldn't often catch him. Harry didn't look it, but he was speedy af.
 
-Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. He looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought it gave main character energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
+Prolly had something to do with living in a dutty cupboard, but Harry had always been smol and scrawny for his age. The short king looked the farthest from swole because all his fits were second hand clothes of Dudley's, and Dudley was fourish times as thicc as him. Harry has a gangly face, knobbly knees, black hair and bright green eyes (like Harry Styles). He wore circle glasses held together with a lot of Scotch tape bc of all the times he had caught Dudley's hands with his face. The only thing Harry liked about his lewk was a very thin scar on his forehead that was shaped like a bolt of lightning. He had had it as long as he could remember and thought it gave main character energy. Since his life was uninteresting asf the first question he could ever remember asking his Aunt Petunia was how he had gotten it.
 
 "When your parents wrecked their whip and unalived." she had said. "And don't be askin questions."
 
@@ -73,7 +73,7 @@ Dudley's mouth fell open in horror, but Harry's heart did a ziggy. Every year on
 
 "We could hit up Marge," Uncle Vernon suggested.
 
-"You're kiddin', right? She hates the boi."
+"You're kiddin', right? The boi's her opp."
 
 The Dursley's often spoke 'bout Harry like this, as though he wasn't there - or rather, as though he was something cringe that couldn't understand them, like a slug.
 
@@ -149,7 +149,7 @@ Dudley standed with his nose pressed against the glass, deekin' at the glistenin
 
 "This is boring," Dudley moaned. He shuffled away.
 
-Harry skirted in front of the tank and looked intently at the nope rope. His wig would not be snatched if it had died of boredity itself--no besties except dingy people drumming their oily fingers on the glass trying to spam it all day long. It was worser than having a dumbass cupboard as a bedroom, where the only visitor was Aunt Petunia hammering on the door to wake your ass up; at least he got to peep the rest of the pad.
+Harry skirted in front of the tank and looked intently at the nope rope. His wig would not be snatched if it had been unalived of boredity itself--no besties except dingy people drumming their oily fingers on the glass trying to spam it all day long. It was worser than having a dumbass cupboard as a bedroom, where the only visitor was Aunt Petunia hammering on the door to wake your ass up; at least he got to peep the rest of the pad.
 
 The snek suddenly opened its beady eyes. Slowly, v slowly, it uppied its head until its eyes were on a level wit Harry's.
 
@@ -183,13 +183,13 @@ Dudley came zoomin toward them.
 
 Harry sat up and was shook; the glass front of the boa constrictor's tank had unappeared. The baddie snek was uncoilling itself and hauling ass out on too the floor. Bitches throughtout the reptile crib were quaking and skirting out the exits.
 
-As the snek slid swiftly past him, Harry on god had heard a low, hissing voice say, "Aight imma head out to Brazil.... Thx, boyo."
+As the snek slid swiftly past him, Harry on god had heard a low, hissing voice say, "Aight imma head out to Brazil.... Thx, blud."
 
 The keeper of the reptile digs was shittin' kittens.
 
 "But the glass," he kept saying, "where did the glass go?"
 
-The zoo director himself made Aunt Petunia a cuppa strong sweet tea while he spammed sorries. Piers and Dudley could only gibber. Harry was one hundo p confident that the snek hadn't done shit except clown around, snapping at they heels as it skirted by, but by the time they were back in Uncle Vernon's whip, Dudley was flexing how it had nearly bitten off his leg, while Piers was capping that it had tried to squeeze him to death. But for sure the worst, for prolly only Harry, was Piers chilling out enough to snitch, "Harry was talking to it, right Harry?"
+The zoo director himself made Aunt Petunia a cuppa strong sweet tea while he spammed sorries. Piers and Dudley could only gibber. Harry was one hundo p confident that the snek hadn't done shit except clown around, snapping at they heels as it skirted by, but by the time they were back in Uncle Vernon's whip, Dudley was flexing how it had nearly bitten off his leg, while Piers was capping that it had tried to squeeze him and unalive him. But for sure the worst, for prolly only Harry, was Piers chilling out enough to snitch, "Harry was blabbing to it, right Harry?"
 
 Uncle Vernon had a error 404 not found until Piers was safely out of the crib to start poppin off at Harry. He was so pressed he could hardly speak. He managed to say, "Go--cupboard--stay--no grub," before he collapsed into a chair, and Aunt Petunia had to sprint and snatch him a brandy so he could selective amnesia this event.
 
