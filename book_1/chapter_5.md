@@ -83,4 +83,10 @@ They sat down in the boat, Harry staring at Hagrid, trying to imagine him flying
 
 "Nah bruh, I gotchu" said Harry, tryna cop a glimpse of more magic. 
 
+Hagrid whipped out that pink umbrella again, bonked it twice on the side of the boat, and boom — they zoomed off back toward land like Fast & Furious.
+“Yo why would someone gotta be straight-up braindead to try and rob Gringotts?” Harry asked.
+“Spells, enchantments, all that cracked-out DLC,” said Hagrid, unfolding his boomer newspaper mid-speech. “Rumor has it there’s legit dragons guarding the high-security vaults. And then finding your way out? Bruh, Gringotts is like Fortnite map layers deep under London, way below the Tube. You’d just starve down there before you ever escaped, even if you somehow clutched the loot.”
+Harry sat there marinating on that while Hagrid got comfy reading the Daily Prophet. Harry knew from Uncle Vernon’s crusty habits that people liked to be left tf alone while newspapering, but damn, he had never had so many questions at once.
+
+
 pg. 64 — chapter not finished yet
