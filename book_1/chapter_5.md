@@ -83,6 +83,7 @@ They sat down in the boat, Harry staring at Hagrid, trying to imagine him flying
 
 "Nah bruh, I gotchu" said Harry, tryna cop a glimpse of more magic. 
 
+
 "Why would you be trippin to try and rob Gringotts?" Harry asked.
 
 "Spells -- enchantments," said Hagrid, unfolding his newspaper as he yapped. "They say there's dragons guardin' the vaults with that frfr bussin bread. And then yeh gotta find yer way -- Gringotts is hundreds of miles under London, see. Deep under the Underground. Yeh'd un'live of hunger tryin' ter get out, even if yeh did manage ter get yer hands on summat."
@@ -120,4 +121,10 @@ The normies stared a lot at Hagrid as they walked through the little town to the
 They had reached the station. There was a train to London in five minutes' time. Hagrid, who didn't understand "Muggle money," as he called it, gave the bills to Harry so he could buy their tickets. People stared more than ever on the train. Hagrid took up two seats and sat knitting what looked like a canary-yellow circus tent."Still got yer letter, Harry?" he asked as he counted stitches. Harry took the parchment envelope out of his pocket.
 
 
-chapter not finished yet
+Page 64:
+Hagrid whipped out that pink umbrella again, bonked it twice on the side of the boat, and boom — they zoomed off back toward land like Fast & Furious.
+“Yo why would someone gotta be straight-up braindead to try and rob Gringotts?” Harry asked.
+“Spells, enchantments, all that cracked-out DLC,” said Hagrid, unfolding his boomer newspaper mid-speech. “Rumor has it there’s legit dragons guarding the high-security vaults. And then finding your way out? Bruh, Gringotts is like Fortnite map layers deep under London, way below the Tube. You’d just starve down there before you ever escaped, even if you somehow clutched the loot.”
+Harry sat there marinating on that while Hagrid got comfy reading the Daily Prophet. Harry knew from Uncle Vernon’s crusty habits that people liked to be left tf alone while newspapering, but damn, he had never had so many questions at once.
+
+
