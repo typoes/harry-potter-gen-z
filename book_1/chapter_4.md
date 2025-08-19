@@ -31,13 +31,13 @@ Harry looked up into the fierce, wild, shadowy face and saw that the beetle eyes
 
 "Las' time I saw you, you was only a baby," said the giant. "Yeh look a lot like yer dad, but yeh've got yer mom's eyes."
 
-Uncle Vernon made a funny rasping noise.
+Uncle Vernon made a sussy rasping noise.
 
 "I demand that you leave at once, sir!" he said, clearly triggered. "You are breaking and entering!"
 
 "Ah, shut up, Dursley, yeh great prune," said the giant; he reached over the back of the sofa, jerked the gun out of Uncle Vernon's hands, bent it into a knot as easily as if it had been made of rubber, and threw it into a corner of the room.
 
-Uncle Vernon made another funny noise, like a mouse being trodden on. No more Karen-ing for him.
+Uncle Vernon made another sussy baka noise, like a mouse being unalived. No more Karen-ing for him.
 
 "Anyway -- Harry," said the giant, turning his back on the Dursleys in hot girl fashion, "a very happy birthday to yeh. Got summat fer yeh here -- I mighta sat on it at some point, but it'll taste all right."
 
@@ -59,13 +59,13 @@ The giant chuckled darkly.
 
 "Yer great puddin' of a son don' need fattenin' anymore, Dursley, chill."
 
-He passed the sausages to Harry, who was so hungry he had never tasted anything so wonderful, but he still couldn't take his eyes off the giant. Finally, as nobody seemed about to explain anything, he said, "I'm sorry, but I still don't really know who you are." The giant took a gulp of tea and wiped his mouth with the back of his hand.
+He passed the sausages to Harry, who was so hungry he had never tasted anything so wonderful, but he still couldn't take his eyes off the big chungus. Finally, as nobody seemed about to explain anything, he said, "I'm sorry, but I still don't really know who you are." The giant took a gulp of tea and wiped his mouth with the back of his hand.
 
 "Call me Hagrid," he said, "everyone does. An' like I told yeh, I'm Keeper of Keys at Hogwarts -- yeh'll know all about Hogwarts, o' course."
 
 "Er -- no," said Harry.
 
-Hagrid looked shocked.
+Hagrid looked shooketh.
 
 "My b" Harry said quickly.
 
@@ -87,7 +87,7 @@ But Hagrid simply waved his hand and said, "About our world, I mean. Your world.
 
 "What world?"
 
-Hagrid looked as if he was about to explode.
+Hagrid looked as if he was about to crash out.
 
 "DURSLEY!" he boomed.
 
@@ -105,7 +105,7 @@ Uncle Vernon suddenly found his voice.
 
 "Stop!" he commanded. "Stop right there, sir! I forbid you to tell the boy anything!"
 
-A braver man than Vernon Dursley would have quailed under the furious look Hagrid now gave him; when Hagrid spoke, his every syllable trembled with rage.
+A braver man than Vernon Dursley would have folded under the furious look Hagrid now gave him; when Hagrid spoke, his every syllable trembled with rage.
 
 "You never told him? Never told him what was in the letter Dumbledore left fer him? I was there! I saw Dumbledore leave it, Dursley! An' you've kept it from him all these years?"
 
