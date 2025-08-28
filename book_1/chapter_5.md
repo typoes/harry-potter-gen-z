@@ -127,4 +127,58 @@ Hagrid whipped out that pink umbrella again, bonked it twice on the side of the 
 “Spells, enchantments, all that cracked-out DLC,” said Hagrid, unfolding his boomer newspaper mid-speech. “Rumor has it there’s legit dragons guarding the high-security vaults. And then finding your way out? Bruh, Gringotts is like Fortnite map layers deep under London, way below the Tube. You’d just starve down there before you ever escaped, even if you somehow clutched the loot.”
 Harry sat there marinating on that while Hagrid got comfy reading the Daily Prophet. Harry knew from Uncle Vernon’s crusty habits that people liked to be left tf alone while newspapering, but damn, he had never had so many questions at once.
 
+“Ministry of Magic fumble-bagging as usual,” Hagrid muttered, flipping the page.
+“There’s a Ministry of Magic?” Harry blurted, before he could even gatekeep himself.
+“Course there is,” said Hagrid. “They tryna make Dumbledore bossman, obvi, but dude said nah I’m married to Hogwarts. So Cornelius Fudge pulled up instead. Total bungler. Guy basically spam-texts Dumbledore with owls every morning beggin’ for cheat codes.”
+“But like… what’s a Ministry of Magic even do?”
+“Main questline is keeping Muggles from finding out there’s still witches and wizards vibin’ all over the country.”
+“Why though?” Harry asked.
+“Why? Bruh,” said Hagrid, “imagine every normie out here tryna get magic hacks for their boring problems. ‘Fix my back pain, do my taxes, cure my hangover’ — nah, hard pass. We vibe better lowkey.”
+Right then the boat bonked gently into the harbor wall. Hagrid folded up his boomer paper, and they both scrambled up the stone steps back onto the street.
+People on the street kept full-on gawking at Hagrid as they walked through the tiny town to the station. Harry couldn’t even blame ’em. Dude was literally double the height of everyone else and kept pointing at basic Muggle stuff like parking meters, yelling, “Look at that, Harry! Wild inventions these Muggles be cooking up, huh?”
+“Hagrid,” said Harry, low-key out of breath from jogging to keep up, “did you just say there’s actual dragons at Gringotts?”
+“Yeah, that’s the tea,” said Hagrid. “Man, I’d love a dragon.”
+“You’d want one?” Harry asked, shook.
+“Been wanting one since I was a lil’ lad— oh, here we are.”
+They pulled up to the station. A train to London was leaving in five minutes. Since Hagrid had negative IQ when it came to “Muggle money” (his words), he just handed Harry the cash so Harry could cop the tickets.
+People were staring even harder once they got on the train. Hagrid was out here taking up two whole seats and casually knitting what looked like a canary-yellow circus tent.
+“Still got yer letter, Harry?” he asked, counting stitches like it was life or death.
+Harry pulled the parchment envelope out of his pocket.
+“Good,” said Hagrid. “There’s a list in there with all the drip you gotta cop.”
+Harry unfolded a second piece of paper he hadn’t even noticed last night and started reading:
+HOGWARTS SCHOOL OF WITCHCRAFT AND WIZARDRY
+Uniform drip check
+First-years gotta pull up with:
+1.	Three fits of plain work robes (black, no logos, keep it basic).
+2.	One basic pointed hat (black) for daily flex.
+3.	One pair of protective gloves (dragon hide or knockoff, whatever’s in stock).
+4.	One winter cloak (black, silver drip for the fastenings).
+PSA: All your clothes gotta have name tags or you’ll be clowning yourself when someone else rocks your gear.
+Set Books (required homework grindset)
+Each student’s backpack needs:
+•	The Standard Book of Spells (Grade 1) by Miranda Goshawk
+•	A History of Magic by Bathilda Bagshot
+•	Magical Theory by Adalbert Waffling
+•	A Beginner’s Guide to Transfiguration by Emeric Switch
+•	One Thousand Magical Herbs and Fungi by Phyllida Spore
+•	Magical Drafts and Potions by Arsenius Jigger
+•	Fantastic Beasts and Where to Find Them by Newt Scamander
+•	The Dark Forces: A Guide to Self-Protection by Quentin Trimble
+Other Equipment (starter kit essentials)
+1.	One wand (non-negotiable, duh)
+2.	One cauldron (pewter, standard size 2 — no oversized flexing)
+3.	One set of glass or crystal phials (pick your aesthetic)
+4.	One telescope (for stargazing or whatever)
+5.	One set of brass scales (gotta measure those potion grams precisely)
+Optional pets (choose your fighter):
+•	Owl
+•	Cat
+•	Toad (kinda mid but still counts)
+Big Warning: Parents — first-years cannot pull up with their own broomsticks. Don’t even try it.
+
+
+“Can we actually cop all this in London?” Harry asked, half to himself.
+“If you know the spots, yeah,” said Hagrid.
+
+
 
