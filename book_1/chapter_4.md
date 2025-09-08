@@ -94,7 +94,7 @@ Hagrid looked as if he was about to totally go off on one.
 
 Uncle Vernon, who had gone peak white, whispered something that sounded like "Mimblewimble." Hagrid stared wildly at Harry.
 
-"But yeh must know about yer mom and dad," he said. "I mean, they're proper famous. You're PEAK famous. Like, full cap."
+"But yeh must know about yer mom and dad," he said. "I mean, they're proper famous. You're PEAK famous. Like, no cap."
 
 "What? My -- my mom and dad weren't influencers, were they?"
 
